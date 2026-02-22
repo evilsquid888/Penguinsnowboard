@@ -179,3 +179,15 @@ Forgiveness is not pretending the crash never happened. It’s choosing to ride 
 
 **Joyful Finish:**  
 > Final sunset sled run through Glitter Gully, laughter, bell ringing, slow fade to starlit sky.
+
+## Cinematic Prompt Enhancers (Phase 3)
+
+Use these add-ons with every image/video prompt in this story to keep visuals consistent and lively.
+
+- **Character Lock:** Keep **Barnaby + Finnegan** visually consistent across shots (same outfit colors, board/ski design, and size relationships).
+- **Style Lock:** cozy storybook fantasy, soft volumetric snowfall, aurora glow, warm rim-light, expressive faces, playful motion arcs.
+- **Camera Mix:** include at least one **wide establishing shot**, one **medium character performance shot**, and one **low-angle action shot**.
+- **Motion Cues:** snow spray, scarf flutter, tiny slips + recoveries, joyful group reactions.
+- **Kid-Safe Tone:** wonder + comedy, never frightening; challenges feel adventurous, not scary.
+- **Negative Prompt (optional):** no horror, no photoreal harshness, no gloomy desaturated palette, no weapons, no realistic peril.
+
