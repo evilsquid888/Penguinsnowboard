@@ -3,6 +3,7 @@
 **Characters:** Piper Paddlefoot, Aurora Frostholm, Bjorn Bigpaws  
 **Setting:** Frozen Mirror Lake  
 **Theme:** Courage to step out, trust when wobbling
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

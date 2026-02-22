@@ -3,6 +3,7 @@
 **Characters:** Magnus Meltsworth, Piper Paddlefoot, Bjorn Bigpaws  
 **Setting:** Long Traverse Trail  
 **Theme:** Extra kindness, strength in service
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

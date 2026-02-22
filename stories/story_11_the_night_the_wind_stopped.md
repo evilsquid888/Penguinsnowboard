@@ -3,6 +3,7 @@
 **Characters:** Piper Paddlefoot, Finnegan Flipsworth, Nora Snowmane, Magnus Meltsworth  
 **Setting:** Frozen Mirror Lake, Starwatch Cliff  
 **Theme:** Peace in fear, trust in the middle of the storm
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

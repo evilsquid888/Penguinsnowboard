@@ -3,6 +3,7 @@
 **Characters:** Barnaby Beaksworth, Teddy & Tilda Powderpuff, Piper Paddlefoot  
 **Setting:** Glitter Gully  
 **Theme:** Forgiveness that keeps choosing love
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

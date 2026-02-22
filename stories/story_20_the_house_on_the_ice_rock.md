@@ -3,6 +3,7 @@
 **Characters:** Bjorn Bigpaws, Finnegan Flipsworth, Willa Wobble  
 **Setting:** Frostpeak Valley Edge Cliffs  
 **Theme:** Strong foundations, hearing and doing wisdom
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

@@ -3,6 +3,7 @@
 **Characters:** Cleo Coldwater, Teddy & Tilda Powderpuff, Nora Snowmane  
 **Setting:** Cocoa Warming Hut  
 **Theme:** Joy in finding what is precious
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

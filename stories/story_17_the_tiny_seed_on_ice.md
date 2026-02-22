@@ -3,6 +3,7 @@
 **Characters:** Willa Wobble, Piper Paddlefoot, Nora Snowmane  
 **Setting:** Cocoa Hut garden patch  
 **Theme:** Small beginnings, patient growth
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

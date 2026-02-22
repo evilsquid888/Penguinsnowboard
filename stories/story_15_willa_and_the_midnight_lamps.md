@@ -3,6 +3,7 @@
 **Characters:** Willa Wobble, Cleo Coldwater, Teddy & Tilda Powderpuff  
 **Setting:** Starwatch Cliff Festival Trail  
 **Theme:** Readiness, quiet wisdom
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

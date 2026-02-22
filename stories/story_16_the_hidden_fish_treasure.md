@@ -3,6 +3,7 @@
 **Characters:** Barnaby Beaksworth, Cleo Coldwater, Magnus Meltsworth  
 **Setting:** Deep Powder Forest  
 **Theme:** True treasure, joyful sacrifice
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 

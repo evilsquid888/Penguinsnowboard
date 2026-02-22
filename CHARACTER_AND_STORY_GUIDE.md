@@ -7,7 +7,9 @@
 
 Welcome to **Frostpeak Valley** — a magical, snow-covered mountain range at the top of the world where penguins ride snowboards and polar bears carve the slopes on skis. The sun sets in shimmering ribbons of green and purple every evening, and the stars shine so bright you could almost read by them. Hot cocoa flows freely from warming huts, and the snow always falls as soft and gentle as a lullaby.
 
-These stories are inspired by ten beloved Bible stories, reimagined with wonder, humor, and heart for little dreamers ready for sleep.
+These stories are inspired by beloved Bible stories, reimagined with wonder, humor, and heart for little dreamers ready for sleep.
+
+**Tone rule for every story:** keep it fun, whimsical, and cozy first — meaningful but never heavy-handed.
 
 ---
 

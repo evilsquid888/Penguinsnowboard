@@ -3,6 +3,7 @@
 **Characters:** Finnegan Flipsworth, Barnaby Beaksworth, Nora Snowmane  
 **Setting:** Frostpeak Valley, distant Icewind Ridge, Cocoa Warming Hut  
 **Theme:** Grace, return, and being welcomed home
+**Tone:** Fun, whimsical, cozy bedtime adventure
 
 ---
 
