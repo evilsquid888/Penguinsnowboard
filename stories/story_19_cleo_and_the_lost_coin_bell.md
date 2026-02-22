@@ -1,6 +1,6 @@
 # Story 19: Cleo and the Lost Coin Bell
 ### *Inspired by The Lost Coin — Luke 15:8–10*
-**Characters:** Cleo Coldwater, Teddy & Tilda, Nora Snowmane  
+**Characters:** Cleo Coldwater, Teddy & Tilda Powderpuff, Nora Snowmane  
 **Setting:** Cocoa Warming Hut  
 **Theme:** Joy in finding what is precious
 
@@ -8,31 +8,87 @@
 
 ## The Story
 
-Cleo wore a tiny silver bell tied to her sketchbook — a gift from her mother.
+Cleo wore a tiny silver bell tied to her sketchbook.
 
-One busy evening in the Cocoa Warming Hut, it vanished.
+When she walked, it made a soft *ting* that sounded like winter sunlight.
 
-She searched pockets, benches, snowbanks. Nothing.
+Her mother had given it to her on her first day in Frostpeak Valley.
 
-"It's so small," Teddy said.
+One bustling evening in the Cocoa Warming Hut, the bell disappeared.
 
-"Still important," Nora replied.
+Cleo searched her pockets. Her scarf. Her sketch pages. Nothing.
 
-The whole hut joined the search: lanterns under tables, paws in boot piles, whiskers in flour sacks.
+"It's gone," she whispered.
 
-At last Tilda shouted from the broom closet, "TINY DING FOUND!"
+"We'll find it," Nora said at once.
 
-The bell had rolled into a narrow crack by the wall.
+"It's so small," Teddy murmured.
 
-Cleo laughed and cried at once, hugging everyone within reach.
+"Small and precious is still precious," Nora replied.
 
-They celebrated with extra cinnamon cocoa and three rounds of "ding ding" jokes.
+The entire hut joined the search.
+
+Lanterns were lowered under benches.
+
+Boot piles were emptied.
+
+Cookie tins were checked twice.
+
+Magnus looked inside the broom bucket and found only one angry potato.
+
+At last, from the broom closet, Tilda shouted:
+
+"TINY DING FOUND!"
+
+The bell had rolled into a narrow floor crack behind a loose plank.
+
+Cleo ran over, took it in both flippers, and burst into happy tears.
+
+She hugged Tilda.
+Then Teddy.
+Then Nora.
+Then everyone else within reach.
+
+That night, the hut hosted an immediate celebration: extra cinnamon cocoa, bonus marshmallows, and three rounds of bell jokes so bad they became excellent.
+
+Cleo retied the bell with stronger thread and whispered, "Welcome back."
+
+And when the bell rang again, the whole room cheered.
 
 ---
 
 ## Goodnight Blessing
 
 *May what feels lost be found.*  
-*May small precious things return to you,*  
-*and may your joy be loud when they do.*  
+*May what is precious be protected.*  
+*May your joy be loud when love returns.*  
 *Goodnight, keeper of treasures.*
+
+---
+
+## Image Prompts
+
+**Cover Illustration:**  
+> Cleo holding tiny silver bell in warm glowing cocoa hut while friends cheer around her, cozy celebratory watercolor style.
+
+**Scene 1 — The Loss:**  
+> Cleo searching pockets anxiously among crowded hut benches and lanterns.
+
+**Scene 2 — Full Hut Search:**  
+> Friends searching everywhere: under tables, in boots, near broom closet, playful but caring energy.
+
+**Scene 3 — Bell Found:**  
+> Tilda holding tiny bell triumphantly, Cleo tearfully smiling in relief.
+
+---
+
+## Video Prompts
+
+**Search Montage:**  
+> Busy hut search with funny near-misses and teamwork.
+
+**Discovery Beat:**  
+> Quiet pause before Tilda's shout, then joyful eruption.
+
+**Celebration:**  
+> Cocoa toast and laughter, bell ringing softly as final sound.

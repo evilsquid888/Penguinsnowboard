@@ -8,33 +8,97 @@
 
 ## The Story
 
-Barnaby found a map inside an old cocoa tin: a fish-shaped X deep in the forest.
+One frosty morning, Barnaby opened an old cocoa tin and found a folded scrap of map paper inside.
 
-He and friends dug all afternoon expecting coins, jewels, or at least premium sardines.
+At the center was a fish-shaped X.
 
-What they found was a cedar chest filled with folded letters.
+"Treasure!" he shouted.
 
-Thank-you notes.
+Magnus, who had been trying to enjoy a quiet morning, sighed. "Fine. One treasure hunt."
 
-"To Barnaby, for fish soup when I was sick."  
-"To Barnaby, for waiting with me when I was scared."  
+Cleo tucked her sketchbook under her wing and joined them, because any day with mystery deserved drawing.
+
+They followed the map through Deep Powder Forest, over a buried log bridge, past the bent pine that looked like a dancing walrus, and into a hollow where snow stood waist-deep.
+
+They dug for hours.
+
+No coins.
+No jewels.
+No golden fish statues.
+
+Then Magnus's shovel struck cedar.
+
+A chest.
+
+They pried it open.
+
+Inside were bundles of letters wrapped in twine.
+
+Barnaby read the first aloud:
+
+"To Barnaby, for fish soup when my cub was sick."  
+
+The next:
+
+"To Barnaby, for waiting with me through the longest storm night."  
+
+Another:
+
 "To Barnaby, for always saying there is enough for one more."
 
-Barnaby sat down in the snow and cried happy tears into his chin stripe.
+There were dozens.
 
-"I thought treasure was what you keep," he said. "Turns out treasure is what you gave and forgot."
+Some old. Some recent. All grateful.
 
-Magnus looked away quickly. "Don't tell anyone I felt feelings."
+Barnaby sat in the snow and cried into his chin stripe.
 
-Cleo sketched the open chest under the pines while the sunset turned everything honey-gold.
+"I thought treasure was something you kept," he whispered. "But this is what I gave away."
+
+Cleo touched the letters gently. "You planted kindness everywhere. This is the harvest."
+
+Magnus cleared his throat and stared at a tree. "Do not report that I have feelings right now."
+
+They carried the chest back to Frostpeak and placed it in the Cocoa Hut, where anyone feeling small could read one letter and remember that love echoes.
+
+Barnaby added one final note to the top of the pile:
+
+"To whoever reads this: There is still enough for one more."
 
 ---
 
 ## Goodnight Blessing
 
-*May you notice the treasures*  
-*already hidden in your life:*  
-*kindness given,*  
-*love remembered,*  
-*hearts warmed.*  
+*May you find real treasure*  
+*in kindness given,*  
+*in love remembered,*  
+*in hearts you've warmed without noticing.*  
 *Goodnight, rich soul.*
+
+---
+
+## Image Prompts
+
+**Cover Illustration:**  
+> Barnaby, Magnus, and Cleo opening a cedar chest in snowy forest clearing, warm sunset light, letters glowing softly inside.
+
+**Scene 1 — Treasure Hunt:**  
+> Trio following handmade map through pine forest, playful adventurous mood.
+
+**Scene 2 — Letter Discovery:**  
+> Close-up of paws/flippers holding gratitude letters, emotional expressions.
+
+**Scene 3 — Cocoa Hut Archive:**  
+> Treasure chest of letters displayed in cozy hut with candles and friends reading quietly.
+
+---
+
+## Video Prompts
+
+**Forest Quest Montage:**  
+> Snowy search sequence with map, digging, and chest discovery.
+
+**Emotional Reveal:**  
+> Chest opens to letters, music softens, Barnaby reading aloud through tears.
+
+**Warm Ending:**  
+> Chest placed in hut, friends reading and smiling, slow fade by fireplace glow.

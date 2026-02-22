@@ -8,35 +8,82 @@
 
 ## The Story
 
-Nora handed Willa a seed so small it looked like a brown speck.
+Nora placed a tiny seed in Willa's palm.
 
-"Plant this by the hut," she said.
+It was so small Piper almost missed it.
 
-Piper squinted. "That? In this cold?"
+"That?" Piper said. "It looks like a crumb."
 
-Willa planted it anyway, shielding it with pebbles and visiting daily.
+"It is enough," Nora said.
 
-For weeks, nothing.
+Willa planted the seed beside the Cocoa Warming Hut where the wind was least harsh. She ringed it with pebbles and checked on it each morning.
 
-Then one morning, a green tip no taller than a whisker pushed through.
+Day after day, nothing happened.
 
-Months passed. The sapling grew.
+Piper passed by and asked, "Still staring at dirt?"
 
-Birds perched in it.
+"Still believing," Willa answered.
 
-Cubs tied ribbons on it.
+Weeks later, one pale green tip pushed through.
 
-In spring melt, it cast a tiny patch of shade for cocoa drinkers. In winter, it held lantern hooks for festival night.
+Tiny as a whisker.
 
-Years later, Piper leaned against the little tree and whispered, "I almost mocked this."
+Willa smiled like sunrise.
+
+Seasons turned.
+
+The sprout became a sapling.
+
+The sapling became a little tree.
+
+In spring melt, riders sat in its shade with cocoa cups.
+
+In winter, lantern hooks hung from its branches on parade night.
+
+Birds nested there. Cubs tied ribbons there. Cleo sketched there.
+
+One evening Piper leaned against the trunk and said quietly, "I almost laughed at that seed."
 
 Willa grinned. "Small isn't nothing. Small is beginning."
+
+Nora added, "Most of God's best work starts quietly."
+
+They watched the tree sway in the evening wind, strong and gentle at once.
 
 ---
 
 ## Goodnight Blessing
 
-*May your tiny efforts grow roots.*  
-*May your quiet beginnings become shelter.*  
-*Nothing loving is wasted.*  
+*May your small beginnings grow roots.*  
+*May your patient care become shelter.*  
+*May you trust that tiny does not mean weak.*  
 *Sleep, little seed.*
+
+---
+
+## Image Prompts
+
+**Cover Illustration:**  
+> Willa kneeling by tiny sprout in snow patch beside warm cocoa hut, Piper watching skeptically but curious, gentle pastel style.
+
+**Scene 1 — Planting Day:**  
+> Tiny seed in Willa's flipper, close-up, snowy ground and pebble ring.
+
+**Scene 2 — First Sprout:**  
+> Green tip emerging through frost, Willa smiling with wonder.
+
+**Scene 3 — Grown Tree:**  
+> Small tree beside hut with lanterns, birds, and friends resting in shade.
+
+---
+
+## Video Prompts
+
+**Time-Lapse Growth:**  
+> Seed planted, seasons changing, sprout to sapling to tree over months.
+
+**Character Reflection Scene:**  
+> Piper and Willa talking by tree at dusk about small beginnings.
+
+**Ending:**  
+> Lanterns lit on branches at night, cozy valley atmosphere and lullaby music.

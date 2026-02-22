@@ -1,61 +1,166 @@
 # Story 13: Barnaby and the Seventy-Times Sled
 ### *Inspired by Forgive Seventy Times Seven — Matthew 18:21–22*
-**Characters:** Barnaby Beaksworth, Teddy & Tilda, Piper Paddlefoot  
+**Characters:** Barnaby Beaksworth, Teddy & Tilda Powderpuff, Piper Paddlefoot  
 **Setting:** Glitter Gully  
 **Theme:** Forgiveness that keeps choosing love
 
 ---
 
+> *Tonight's story is soft and honest. Sometimes hearts get bumped, just like sleds do.*
+
 ## The Story
 
-Barnaby had one favorite sled. It was old, red, and made a cheerful squeak on every turn.
+Barnaby Beaksworth owned many wonderful things: a snack backpack with twelve hidden pockets, a soup ladle engraved with tiny fish, and a laugh that could warm a snowstorm.
 
-Teddy and Tilda were under strict instructions not to borrow it without asking.
+But his favorite thing in the whole valley was an old red sled.
 
-So naturally, they borrowed it without asking.
+It squeaked on left turns.
+It rattled on right turns.
+And on straight runs, it made a happy little *ding ding* because of a silver bell tied to the handle.
 
-On run one, they laughed. On run two, they shouted. On run three, they hit a drift, flipped, and cracked the sled right down the middle.
+Barnaby's grandmother had carved it by paw when he was small. He polished it every Saturday and spoke to it like it was a dear friend.
 
-When Barnaby saw it, he froze.
+"You and me, Red," he'd say. "Classic pair."
 
-"My grandmother gave me that sled," he said quietly.
+Now, Teddy and Tilda Powderpuff had been told — repeatedly, clearly, and with hand-drawn diagrams — not to borrow Red without asking.
 
-The twins looked at their paws.
+So naturally, they borrowed Red without asking.
 
-"We didn't mean to—"
+"Just one run," Teddy said.
 
-"—and this time it was not worth it," they finished.
+"Two max," Tilda said.
 
-Barnaby wanted to shout. Instead, he took one breath, then another.
+By run three, they hit a glitter drift in Glitter Gully, spun sideways, and *crack* — the sled split clean down the middle.
 
-That evening, while mending with pine glue and twine, the twins came to help. They tied knots badly. Untied them. Tried again.
+The twins stared.
 
-"Are you mad forever?" Teddy asked.
+"We didn't mean to—" Teddy whispered.
 
-"Mad for a while," Barnaby said. "Not forever."
+"—and this is very, very bad," Tilda finished.
 
-The next day the twine slipped and the sled broke again.
+When Barnaby saw the broken sled, he stopped walking. His beak opened. Closed. Opened again.
 
-The third day glue spilled everywhere.
+"My grandmother gave me that," he said quietly.
 
-The fourth day Tilda sat on wet paint.
+Piper, who had arrived just in time to witness the entire disaster, moved closer. "Barnaby?"
 
-The fifth day they finally got it right.
+Barnaby's eyes filled. "I am currently experiencing ten thousand feelings."
 
-When the sled held, the twins cheered louder than avalanches.
+He wanted to shout. He wanted to stomp. He wanted to say, *No one touches anything ever again.*
 
-Barnaby smiled. "Forgiveness isn't pretending things didn't break. It's choosing to rebuild together."
+Instead, he sat in the snow.
 
-Then he let Teddy steer and Tilda ring the little bell.
+He took one breath in.
 
-They crashed into a snowbank at the bottom and laughed until they couldn't stand.
+One breath out.
+
+Then another.
+
+Then another.
+
+The twins shuffled near him, shaking.
+
+"Are we... kicked out forever?" Teddy asked.
+
+Barnaby looked at their tiny faces, wet with worried tears.
+
+"No," he said. "I'm hurt. And upset. But no forever-kicking." 
+
+That evening, they carried Red to the Cocoa Warming Hut workshop.
+
+Barnaby laid out pine glue, cedar splints, twine, and clamps. Piper held the lamp. Teddy held nails. Tilda held hope.
+
+They worked slowly.
+
+The first repair looked excellent.
+
+The next morning, it broke on the first bump.
+
+They repaired again.
+
+On day two, the twine slipped.
+
+On day three, Teddy sneezed glue onto Barnaby's scarf.
+
+On day four, Tilda sat directly on fresh paint and left one very artistic bear-bottom print.
+
+Barnaby groaned. The twins froze.
+
+Then Barnaby sighed, closed his eyes, and laughed.
+
+"Okay," he said. "Again. We rebuild again."
+
+By day five, the joints held.
+By day six, the bell was back on.
+By day seven, Red squeaked left, rattled right, and dinged on straightaways.
+
+Stronger than before.
+
+At sunset, Barnaby stood at the top of Glitter Gully with Teddy and Tilda beside him.
+
+"I need you both to hear me," he said gently. "Forgiveness is not pretending nothing broke. It is choosing love while we fix what broke — sometimes many times."
+
+"Like... seventy times seven?" Tilda asked.
+
+Barnaby smiled. "Exactly like that."
+
+Then he handed Teddy the steering rope.
+
+"What? Really?" Teddy gasped.
+
+"Really."
+
+He handed Tilda the bell cord.
+
+"Ring proud," he said.
+
+They launched.
+
+Halfway down, they hit a bump and all three flew into the same snowbank.
+
+The bell rang wildly.
+
+Barnaby popped up first, snow on his head, laughing so hard he couldn't breathe.
+
+Teddy and Tilda joined in, laughing until stars came out and the whole valley sounded like joy.
 
 ---
 
 ## Goodnight Blessing
 
-*When something breaks tonight,*  
-*may your heart stay soft enough to mend.*  
-*May you be brave enough to try again,*  
-*and kind enough to forgive again.*  
-*Goodnight, gentle repairer.*
+*If something hurt your heart today,*  
+*may love keep it soft.*  
+*If something broke,*  
+*may you have patient hands to mend.*  
+*May you forgive bravely,*  
+*and be forgiven gently.*  
+*Goodnight, tender heart.*
+
+---
+
+## Image Prompts
+
+**Cover Illustration:**  
+> Barnaby, Teddy, and Tilda in a warm wooden snow workshop repairing a cracked red sled under golden lantern light, pine tools and twine on table, cozy children's watercolor style.
+
+**Scene 1 — The Crash:**  
+> Two polar bear cubs on a red sled flipping in sparkling Glitter Gully, snow flying, expression of "uh-oh," bright and playful family-friendly art.
+
+**Scene 2 — Repair Montage:**  
+> Multi-moment style image of mending attempts: glue spill, twine knot, painted paw print, laughter returning.
+
+**Scene 3 — The Final Ride:**  
+> Sunset run with Barnaby and cubs on restored sled, little silver bell ringing, glowing snow and joyful faces.
+
+---
+
+## Video Prompts
+
+**Crash to Repair Arc:**  
+> Quick comedic crash sequence, then emotional workshop repair montage with gentle music, ending in successful test ride.
+
+**Forgiveness Moment:**  
+> Intimate close-up scene where Barnaby kneels to talk with cubs about forgiveness, warm lantern tones, soft orchestral underscore.
+
+**Joyful Finish:**  
+> Final sunset sled run through Glitter Gully, laughter, bell ringing, slow fade to starlit sky.
