@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* When the bell chimed, three seals clapped in sync like they had rehearsed all afternoon.
+
 When something precious disappears, Cleo doesn’t panic—she lights a lamp, follows beauty, and listens for joy.
 
 ## The Story

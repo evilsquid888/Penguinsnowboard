@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* The first sunbeams landed on the snow like glitter tossed by invisible party planners.
+
 Before there were tracks, trophies, or snack wrappers, there was a hush so bright it practically sparkled.
 
 ## The Story

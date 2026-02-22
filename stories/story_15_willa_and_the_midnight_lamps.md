@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* A polite owl blinked from the rafters with the exact expression of, “Yes, packing early was wise.”
+
 Smart riders pack what they need before dark. Willa calls this ‘wisdom.’ Finnegan calls it ‘unfair preparedness.’
 
 ## The Story

@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* The new walls held steady while the wind huffed dramatically, offended but impressed.
+
 Storms love weak foundations. Frostpeak families prefer bedrock, teamwork, and roofs that don’t wobble in dramatic weather.
 
 ## The Story

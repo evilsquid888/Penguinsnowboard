@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* Snow swirled in little spirals that looked almost like the mountain exhaling with them.
+
 The wind arrived loud, dramatic, and very convinced it was the main character.
 
 ## The Story

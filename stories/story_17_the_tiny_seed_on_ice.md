@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* A single tiny sprout looked ridiculous and magnificent at the exact same time.
+
 Tiny things can look silly at first—until one day they become forests, friendships, or very surprising miracles.
 
 ## The Story

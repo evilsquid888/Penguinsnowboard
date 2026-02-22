@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* Somewhere off-trail, a seal slapped the ice like a tiny drumroll for destiny.
+
 If courage were measured in inches, Willa would still break the mountain’s scoreboard.
 
 ## The Story

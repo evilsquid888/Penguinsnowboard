@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* Even the snow seemed to lean in and listen, like it already knew kindness was about to win.
+
 Some heroes wear capes. Others carry emergency cocoa and know how to stop on black ice without dramatic flipper-waving.
 
 ## The Story

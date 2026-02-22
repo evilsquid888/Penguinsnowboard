@@ -11,6 +11,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* Finnegan apologized so fast he accidentally invented a new tongue-twister about sleds and sincerity.
+
 Barnaby says forgiveness is like hot cocoa: best served often, and with extra marshmallows.
 
 ## The Story

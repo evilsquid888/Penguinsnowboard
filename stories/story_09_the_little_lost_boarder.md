@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* A tiny seal pup became the official cheer captain and took this role very seriously.
+
 When one tiny boarder goes missing, the whole valley turns into a determined, snow-booted search party.
 
 ## The Story

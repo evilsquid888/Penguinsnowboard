@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* Three penguins gasped in perfect harmony, then immediately pretended they meant to do that.
+
 When the path looks impossible, Frostpeak experts recommend deep breaths, linked flippers, and at least one friend who yells encouraging nonsense.
 
 ## The Story

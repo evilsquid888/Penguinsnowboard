@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* Teddy and Tilda immediately proposed a treasure dance that required zero rhythm and maximum joy.
+
 The best treasures are rarely the loudest things in the room—though Teddy and Tilda keep volunteering to test that theory.
 
 ## The Story

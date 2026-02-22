@@ -11,6 +11,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* The moon painted silver ribbons across the ice, as if cheering quietly from above.
+
 Moonlit ice is beautiful, wobbly, and deeply committed to testing everyone’s balance and bravery.
 
 ## The Story

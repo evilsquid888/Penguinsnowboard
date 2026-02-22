@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* One mitten flew into the air at exactly the emotional moment, which felt very on-brand for Frostpeak.
+
 Some returns are quiet. Some are awkward. The best ones end with open doors, warm lights, and somebody saying, ‘There you are.’
 
 ## The Story

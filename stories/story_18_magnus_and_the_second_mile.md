@@ -9,6 +9,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* Magnus grumbled so loudly that everyone knew he was definitely about to do something very kind.
+
 Magnus is not ‘soft.’ He is merely ‘temporarily available for one additional act of kindness.’
 
 ## The Story

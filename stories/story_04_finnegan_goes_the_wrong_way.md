@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* A puffin spectator shouted unhelpful directions with complete confidence and excellent enthusiasm.
+
 Finnegan promised to follow directions this time, which is exactly what he says right before doing the opposite at top speed.
 
 ## The Story

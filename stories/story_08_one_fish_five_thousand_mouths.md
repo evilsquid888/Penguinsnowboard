@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* By the third laugh, even the grumpiest walrus looked suspiciously ready for a second helping.
+
 Barnaby packed one fish, three napkins, and enough optimism to feed a mountain.
 
 ## The Story

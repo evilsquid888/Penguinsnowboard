@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* A narwhal in the distance did a dramatic spin anyway, just in case the moment needed extra sparkle.
+
 Tonight’s forecast: 20% snow, 80% heroic logistics, and a 100% chance that Piper launches before anyone finishes the safety briefing.
 
 ## The Story

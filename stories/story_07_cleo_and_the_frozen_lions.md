@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* A sleepy arctic fox blinked twice, decided everyone was brave, and curled back into a snowball nap.
+
 Cleo brought courage, a sketchbook, and exactly zero interest in pretending to be someone she isn’t.
 
 ## The Story

@@ -12,6 +12,9 @@
 
 ## Opening Wink
 
+
+*Revision Pass 3 Spark:* The tower wobbled, paused, and then leaned like it was trying to hear everyone at once.
+
 Building something tall is easy. Building something together without arguing about left versus right? That’s the advanced course.
 
 ## The Story
