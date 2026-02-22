@@ -1,177 +1,164 @@
 # Penguins on Snowboards & Polar Bears on Skis
-## Character & Story Guide
+## Character, Story, and Prompt Guide (Frostpeak Valley Edition)
 
 ---
 
-## WORLD OVERVIEW
+## WORLD VIBE (THE NON-NEGOTIABLES)
 
-Welcome to **Frostpeak Valley** — a magical, snow-covered mountain range at the top of the world where penguins ride snowboards and polar bears carve the slopes on skis. The sun sets in shimmering ribbons of green and purple every evening, and the stars shine so bright you could almost read by them. Hot cocoa flows freely from warming huts, and the snow always falls as soft and gentle as a lullaby.
+Welcome to **Frostpeak Valley**: a snowy wonderland where penguins carve powder, polar bears shred ski runs, narwhals pop through ice holes like joyful submarines, and seals clap at dramatic landings.
 
-These stories are inspired by beloved Bible stories, reimagined with wonder, humor, and heart for little dreamers ready for sleep.
+These stories are playful winter allegories inspired by Bible stories—**heart-first, never preachy**.
 
-**Tone rule for every story:** keep it fun, whimsical, and cozy first — meaningful but never heavy-handed.
-
----
-
-## MAIN CHARACTERS
-
-### THE PENGUINS
+### Tone Rules
+- Cozy first, meaningful second
+- Funny always (gentle, never mean)
+- High wonder, low fear
+- Every challenge ends in warmth, friendship, and hope
 
 ---
 
-#### PIPER PADDLEFOOT
-- **Species:** Emperor Penguin
-- **Snowboard:** A glittery blue board with silver snowflake decals
-- **Personality:** Brave, curious, sometimes too impulsive — but always means well
+## CHARACTER GUIDE
+
+## The Core Crew
+
+### Piper Paddlefoot (Emperor Penguin)
+- **Snowboard:** Glittery blue with silver snowflakes
+- **Energy:** Brave rocket with a lovable planning problem
 - **Catchphrase:** *"Slide into it!"*
-- **Bible Story Connection:** Noah (Story 1), Moses (Story 6)
-- **Description:** Piper is a small but bold penguin with an unusually big tuxedo belly. She has bright yellow ear-patches and tiny goggles she wears pushed up on her head (never over her eyes — that would make too much sense). She loves to be first down the mountain, even when she has no idea where the trail leads.
+- **Best use in stories:** Leaps first, learns trust mid-flight
 
----
+### Barnaby Beaksworth (Chinstrap Penguin)
+- **Snowboard:** Orange pizza-board
+- **Energy:** Big-hearted snack oracle, dramatic narrator
+- **Catchphrase:** *"There’s always enough fish for one more!"*
+- **Best use:** Generosity, hospitality, forgiveness
 
-#### BARNABY BEAKSWORTH
-- **Species:** Chinstrap Penguin
-- **Snowboard:** A wide orange board painted to look like a slice of pizza
-- **Personality:** Gentle, kind, loves to feed everyone, dramatic storyteller
-- **Catchphrase:** *"There's always enough fish for one more!"*
-- **Bible Story Connection:** Feeding of the 5,000 (Story 8), Good Samaritan (Story 3)
-- **Description:** Round, cheerful, and always carrying a backpack full of snacks. Barnaby has a thin black stripe under his chin that looks like a little beard. He speaks in grand declarations and tells stories with sweeping flipper gestures.
-
----
-
-#### WILLA WOBBLE
-- **Species:** Little Blue Penguin (the world's smallest penguin)
-- **Snowboard:** A tiny purple board barely bigger than a dinner tray
-- **Personality:** Quiet, wise, deeply faithful, unexpectedly fast
+### Willa Wobble (Little Blue Penguin)
+- **Snowboard:** Tiny purple board
+- **Energy:** Small, steady, unexpectedly legendary
 - **Catchphrase:** *"The smallest step is still a step."*
-- **Bible Story Connection:** David and Goliath (Story 2), Lost Sheep (Story 9)
-- **Description:** Willa is the tiniest penguin in the valley, standing barely knee-high to a polar bear cub. She wears a little lavender scarf knitted by her grandmother. Everyone underestimates her. Everyone is always wrong to do so.
+- **Best use:** Quiet courage, searching, wisdom
 
----
+### Finnegan Flipsworth (Rockhopper Penguin)
+- **Snowboard:** Red with fish and lightning stickers
+- **Energy:** Chaos trumpet with a loyal heart
+- **Catchphrase:** *"WOOOHOOOOO—wait, how do I stop?!"*
+- **Best use:** Comedy, detours, second chances
 
-#### FINNEGAN FLIPSWORTH
-- **Species:** Rockhopper Penguin
-- **Snowboard:** A bright red board covered in stickers of fish and lightning bolts
-- **Personality:** Loud, funny, a little clumsy, fiercely loyal
-- **Catchphrase:** *"WOOOHOOOOO — wait, how do I stop?!"*
-- **Bible Story Connection:** Jonah (Story 4), Tower of Babel (Story 10)
-- **Description:** Finnegan has wild yellow eyebrow-feathers that stand straight up like tiny pompoms. He is the loudest penguin in the valley and the most likely to accidentally start an avalanche. Despite his chaos, he always ends up exactly where he needs to be.
-
----
-
-#### CLEO COLDWATER
-- **Species:** Macaroni Penguin
-- **Snowboard:** A sleek teal board with golden racing stripes
-- **Personality:** Artistic, dreamy, sees beauty everywhere, loves to paint the snow
+### Cleo Coldwater (Macaroni Penguin)
+- **Snowboard:** Teal with gold racing lines
+- **Energy:** Artistic wonder-gremlin
 - **Catchphrase:** *"Every slope tells a story."*
-- **Bible Story Connection:** Creation (Story 5), Daniel (Story 7)
-- **Description:** Cleo has spectacular golden-orange feathers springing from above each eye like a royal headdress. She carries a small sketchbook in her vest pocket and stops mid-run to draw things she finds beautiful.
+- **Best use:** Beauty, gratitude, perspective
+
+### Bjorn Bigpaws (Polar Bear)
+- **Skis:** Forest green, paw-print edges
+- **Energy:** Regal guardian, accidental comedian
+- **Catchphrase:** *"I did not fall. I descended with style."*
+- **Best use:** Protection, leadership, humility arcs
+
+### Nora Snowmane (Polar Bear)
+- **Skis:** Snow-white with pale blue patterns
+- **Energy:** Calm counselor, warm blanket in bear form
+- **Catchphrase:** *"Sit. Cocoa first. Then feelings."*
+- **Best use:** Compassion, restoration, finding the lost
+
+### Teddy & Tilda Powderpuff (Polar Bear Cubs)
+- **Skis:** Matching yellow minis
+- **Energy:** Twin chaos confetti
+- **Catchphrase:** *"We didn’t mean to— / —but it was worth it."*
+- **Best use:** Comic timing, joy, kid relatability
+
+### Magnus Meltsworth (Polar Bear)
+- **Skis:** Ancient wooden planks “with character”
+- **Energy:** Grump shell, marshmallow center
+- **Catchphrase:** *"Fine. But this is my one noble act for the week."*
+- **Best use:** Reluctant kindness, extra-mile moments
+
+### Aurora Frostholm (Polar Bear)
+- **Skis:** Iridescent, aurora-shifting
+- **Energy:** Adventure sparkplug
+- **Catchphrase:** *"Last one down buys cocoa!"*
+- **Best use:** Courage boosts, rescue entrances
 
 ---
 
-### THE POLAR BEARS
+## Winter Side Characters (Use Often)
+- **Nibbles & Splash (Seal siblings):** slapstick + surprise wisdom
+- **Captain Prism (Narwhal):** icy-lake guide, dramatic monologues
+- **Whistlewick (Arctic Fox):** fast scout, puzzle solver
+- **Herschel the Walrus:** cocoa master and valley elder
 
 ---
 
-#### BJORN BIGPAWS
-- **Species:** Polar Bear
-- **Skis:** Giant forest-green skis with bear-paw prints painted along the edges
-- **Personality:** Noble, protective, a little pompous — but has a warm and humble heart underneath
-- **Catchphrase:** *"A bear of my stature does not fall. I... kneel gracefully."*
-- **Bible Story Connection:** Noah (Story 1), Tower of Babel (Story 10)
-- **Description:** Bjorn is enormous — the tallest skier in the valley. He has a slightly lopsided nose and one ear that is permanently bent from a long-ago tumble he refuses to discuss. He carries a thermos of chamomile tea at all times.
+## STORY GUIDE — WINTER ALLEGORY MAP
 
----
-
-#### NORA SNOWMANE
-- **Species:** Polar Bear
-- **Skis:** Elegant white skis with pale blue snowflake patterns — nearly invisible against fresh powder
-- **Personality:** Calm, wise, nurturing, deeply compassionate — the valley's unofficial counselor
-- **Catchphrase:** *"Sit. Have some tea. Tell me everything."*
-- **Bible Story Connection:** Good Samaritan (Story 3), Lost Sheep (Story 9)
-- **Description:** Nora is the oldest and most respected animal in Frostpeak Valley. She has warm brown eyes and a tuft of silvery-white fur between her ears. Young penguins often fall asleep in her fur after a long day of snowboarding.
-
----
-
-#### CUBS: TEDDY & TILDA POWDERPUFF
-- **Species:** Polar Bear Cubs
-- **Skis:** Matching tiny yellow skis
-- **Personality:** Mischievous twins who finish each other's sentences and cause equal amounts of trouble and delight
-- **Catchphrase:** *"We didn't mean to—"/ "—but it was worth it."*
-- **Bible Story Connection:** Feeding of the 5,000 (Story 8), Creation (Story 5)
-- **Description:** Teddy and Tilda are barely bigger than the penguins. Teddy always has snow on his nose. Tilda always has snow in her ears. Neither one knows how it keeps happening. They have matching blue scarves — Teddy's is slightly chewed.
-
----
-
-#### MAGNUS MELTSWORTH
-- **Species:** Polar Bear
-- **Skis:** Old, battered wooden skis he refuses to replace because "they have character"
-- **Personality:** Grumpy exterior, gold interior, reluctant hero
-- **Catchphrase:** *"Fine. But I'm only doing this once."*
-- **Bible Story Connection:** Jonah (Story 4), Daniel (Story 7)
-- **Description:** Magnus is wide and gruff and his fur sticks up on one side. He smells of pine sap and old wool. He grumbles constantly but has never once left a friend behind.
-
----
-
-#### AURORA FROSTHOLM
-- **Species:** Polar Bear
-- **Skis:** Iridescent skis that shift color in the light — pink, green, blue
-- **Personality:** Joyful, spontaneous, sees every challenge as an adventure
-- **Catchphrase:** *"Last one to the bottom buys the cocoa!"*
-- **Bible Story Connection:** Moses (Story 6), David and Goliath (Story 2)
-- **Description:** Aurora has impossibly bright eyes the color of spring ice. She laughs at everything, including danger. She has a gift for showing up at exactly the right moment.
-
----
-
-## RECURRING LOCATIONS
-
-| Location | Description |
-|---|---|
-| **The Peak of Plenty** | The highest point of Frostpeak Valley; where every run begins |
-| **Cocoa Warming Hut** | A cozy hut mid-mountain run by a very old walrus named Herschel |
-| **The Glitter Gully** | A sparkling ravine where frozen waterfalls create rainbow prisms |
-| **The Deep Powder Forest** | A pine forest where the snow is always perfectly soft and silence feels holy |
-| **Frozen Mirror Lake** | A perfectly flat frozen lake at the valley bottom, clear as glass |
-| **The Starwatch Cliff** | A ledge overlooking the whole valley; best spot for seeing the northern lights |
-
----
-
-## STORY GUIDE — BIBLE CONNECTIONS
-
-| # | Story Title | Bible Story | Bible Reference | Key Theme |
+| # | Story Title | Allegory Inspiration | Core Theme | Winter Flavor |
 |---|---|---|---|---|
-| 1 | The Great Slush Flood | Noah's Ark | Genesis 6–9 | Trust, preparation, new beginnings |
-| 2 | Willa and the Giant Snowball | David and Goliath | 1 Samuel 17 | Courage, faith over size |
-| 3 | The Penguin Left on the Slope | The Good Samaritan | Luke 10:25–37 | Kindness to strangers |
-| 4 | Finnegan Goes the Wrong Way | Jonah and the Whale | Jonah 1–3 | Obedience, second chances |
-| 5 | The First Morning on Frostpeak | The Creation | Genesis 1–2 | Wonder, gratitude for beauty |
-| 6 | Piper and the Parting Snow | Moses and the Red Sea | Exodus 14 | Faith, impossible moments |
-| 7 | Cleo and the Frozen Lions | Daniel in the Lions' Den | Daniel 6 | Courage, staying true |
-| 8 | One Fish, Five Thousand Mouths | Feeding of the 5,000 | John 6:1–14 | Generosity, abundance |
-| 9 | The Little Lost Boarder | The Lost Sheep | Luke 15:1–7 | You are always worth finding |
-| 10 | The Tower of Snow | The Tower of Babel | Genesis 11:1–9 | Humility, working together |
-| 11 | The Night the Wind Stopped | Jesus Calms the Storm | Mark 4:35–41 | Peace in fear |
-| 12 | The Boarder Who Came Home | The Prodigal Son | Luke 15:11–32 | Grace and return |
-| 13 | Barnaby and the Seventy-Times Sled | Forgive Seventy Times Seven | Matthew 18:21–22 | Forgiveness |
-| 14 | Piper on the Moonlit Ice | Peter Walks on Water | Matthew 14:22–33 | Courage while afraid |
-| 15 | Willa and the Midnight Lamps | Wise and Foolish Virgins | Matthew 25:1–13 | Readiness and wisdom |
-| 16 | The Hidden Fish Treasure | Hidden Treasure | Matthew 13:44 | True treasure |
-| 17 | The Tiny Seed on Ice | Mustard Seed | Matthew 13:31–32 | Small beginnings, great growth |
-| 18 | Magnus and the Second Mile | Go the Second Mile | Matthew 5:41 | Extra kindness |
-| 19 | Cleo and the Lost Coin Bell | The Lost Coin | Luke 15:8–10 | Joy in finding what is precious |
-| 20 | The House on the Ice Rock | Wise and Foolish Builders | Matthew 7:24–27 | Strong foundations |
+| 1 | The Great Slush Flood | Noah’s Ark | Trust + preparation | raft, melt surge, aurora nights |
+| 2 | Willa and the Giant Snowball | David & Goliath | Courage over size | tiny rider vs massive rolling challenge |
+| 3 | The Penguin Left on the Slope | Good Samaritan | Kindness to strangers | rescue run on stormy trail |
+| 4 | Finnegan Goes the Wrong Way | Jonah | Obedience + second chances | wrong run, giant ice cavern fish vibes |
+| 5 | The First Morning on Frostpeak | Creation | Wonder + gratitude | first light over untouched powder |
+| 6 | Piper and the Parting Snow | Red Sea | Faith in impossible paths | split snow corridor |
+| 7 | Cleo and the Frozen Lions | Daniel | Courage + integrity | ice-lion cavern peace |
+| 8 | One Fish, Five Thousand Mouths | Feeding 5,000 | Generosity + abundance | fish feast at slope festival |
+| 9 | The Little Lost Boarder | Lost Sheep | You are worth finding | blizzard search party |
+| 10 | The Tower of Snow | Babel | Humility + teamwork | silly miscommunication builds |
+| 11 | The Night the Wind Stopped | Calming the storm | Peace in fear | gale on glacier lake |
+| 12 | The Boarder Who Came Home | Prodigal Son | Grace + homecoming | return to warm lodge lights |
+| 13 | Barnaby and the Seventy-Times Sled | 70x7 forgiveness | Forgiveness | repeated collisions, repeated grace |
+| 14 | Piper on the Moonlit Ice | Peter on water | Courage while afraid | moon-ice glide with wobble |
+| 15 | Willa and the Midnight Lamps | Wise/Foolish Virgins | Readiness | lanterns, starlit ridge |
+| 16 | The Hidden Fish Treasure | Hidden treasure | True riches | buried cache under blue ice |
+| 17 | The Tiny Seed on Ice | Mustard seed | Small beginnings | seed under snow miracle |
+| 18 | Magnus and the Second Mile | Go second mile | Extra kindness | long tow through deep powder |
+| 19 | Cleo and the Lost Coin Bell | Lost coin | Joy in finding | bell chime echo on frozen cliffs |
+| 20 | The House on the Ice Rock | Wise/Foolish builders | Strong foundations | ice hut vs bedrock lodge |
+
+---
+
+## IMAGE + VIDEO PROMPT GUIDE (REQUIRED FOR EVERY STORY)
+
+Each story should end with:
+- **1 Cover prompt**
+- **3 Scene image prompts**
+- **3 Video prompts** (opening / challenge / triumphant close)
+
+### Prompt Formula
+1. Character + action
+2. Winter setting + weather
+3. Mood words (cozy, whimsical, cinematic, glowing)
+4. Art/animation style
+5. Camera framing (for video)
+
+### Prompt Quality Checklist
+- Include at least one **specific creature detail** (board color, scarf, skis)
+- Include one **playful motion cue** (snow spray, wobble, tumble, zoom)
+- Keep language visual and storybook-safe
+- No scary violence; wonder > threat
+
+---
+
+## INTERIM QA CHECKS (USE DURING EDITING)
+
+After edits, verify:
+1. Story still reads out loud in ~8–12 minutes
+2. Tone stays fun, warm, and silly
+3. Allegory is clear but not preachy
+4. Each story has Goodnight Blessing + Image Prompts + Video Prompts
+5. Character behavior remains consistent
 
 ---
 
 ## READING TIPS FOR GROWN-UPS
 
-- Each story runs approximately **10 minutes** at a comfortable, sleepy reading pace.
-- **Bold words** are great for gentle emphasis — slow down and make them feel big.
-- *Italicized passages* are the quiet, tender moments — whisper these.
-- Each story ends with a **Goodnight Blessing** — read it slowly, like a lullaby.
-- The **Image Prompts** and **Video Prompts** at the end of each story can be used to generate AI illustrations or animations if you want to bring the stories to life visually.
+- Read action lines with bounce and smile
+- Whisper quiet sections like snowfall
+- Let catchphrases become call-and-response moments
+- End every story slow and calm for bedtime landing
 
 ---
 
-*"For He grants sleep to those He loves."*
-*— Psalm 127:2*
+*"He gives sleep to His beloved." — Psalm 127:2*  
+*Now zip your sleeping bag, sip imaginary cocoa, and drift to dream-snow.*

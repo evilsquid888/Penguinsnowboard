@@ -106,6 +106,12 @@ Outside, the Deep Powder Forest was soft and still and silent, and the last of t
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **3: The Penguin Left on the Slope**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *Close your eyes, kind one.*

@@ -101,6 +101,12 @@ Then he smiled.
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **12: The Boarder Who Came Home**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *If you've wandered far today,*  

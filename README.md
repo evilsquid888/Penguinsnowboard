@@ -1,9 +1,9 @@
 # Penguins on Snowboards & Polar Bears on Skis
-## 10 Bedtime Stories from Frostpeak Valley
+## 20 Bedtime Stories from Frostpeak Valley
 
 ---
 
-A collection of 10 original bedtime stories set in the snowy, magical world of **Frostpeak Valley** — where penguins ride snowboards and polar bears carve the slopes on skis. Each story is inspired by a beloved Bible story, reimagined with wonder, warmth, and just the right amount of silliness for little dreamers.
+A collection of 20 original bedtime stories set in the snowy, magical world of **Frostpeak Valley** — where penguins ride snowboards, polar bears carve the slopes on skis, and winter creatures bring giggles to every trail. Each story is a playful winter allegory inspired by a beloved Bible story, reimagined with wonder, warmth, and just the right amount of silliness for little dreamers.
 
 Each story includes **image prompts** and **video prompts** for bringing the tales to life visually, plus a soothing **Goodnight Blessing** to close each night.
 

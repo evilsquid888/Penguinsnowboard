@@ -67,6 +67,12 @@ Barnaby added one final note to the top of the pile:
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **16: The Hidden Fish Treasure**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *May you find real treasure*  

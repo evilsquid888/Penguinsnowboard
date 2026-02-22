@@ -127,6 +127,12 @@ Teddy and Tilda joined in, laughing until stars came out and the whole valley so
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **13: Barnaby and the Seventy-Times Sled**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *If something hurt your heart today,*  

@@ -53,6 +53,12 @@ They watched the tree sway in the evening wind, strong and gentle at once.
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **17: The Tiny Seed on Ice**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *May your small beginnings grow roots.*  

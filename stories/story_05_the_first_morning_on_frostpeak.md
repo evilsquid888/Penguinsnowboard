@@ -108,6 +108,12 @@ And the valley held them — all the made things, all the on-purpose things — 
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **5: The First Morning on Frostpeak**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *Close your eyes, made thing.*

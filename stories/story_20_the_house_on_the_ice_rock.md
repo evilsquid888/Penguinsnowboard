@@ -73,6 +73,12 @@ Finnegan lifted his cocoa cup. "To foundations. And to friends who let you rebui
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **20: The House on the Ice Rock**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *May your life be built on what lasts:*  

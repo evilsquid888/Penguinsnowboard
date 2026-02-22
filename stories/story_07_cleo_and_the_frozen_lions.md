@@ -118,6 +118,12 @@ She always would.
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **7: Cleo and the Frozen Lions**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *Close your eyes, true one.*

@@ -109,6 +109,12 @@ And all three agreed that fear had lost this round.
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **14: Piper on the Moonlit Ice**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *If tomorrow asks a brave step from you,*  

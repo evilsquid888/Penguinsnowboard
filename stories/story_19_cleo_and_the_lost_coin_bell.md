@@ -58,6 +58,12 @@ And when the bell rang again, the whole room cheered.
 
 ---
 
+## Snowy Giggle Check-In
+
+- What was the silliest moment in **19: Cleo and the Lost Coin Bell**?
+- Which character would you want beside you on a snowy adventure tonight?
+- If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
+
 ## Goodnight Blessing
 
 *May what feels lost be found.*  
