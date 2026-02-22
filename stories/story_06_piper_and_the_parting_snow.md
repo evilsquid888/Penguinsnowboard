@@ -126,6 +126,12 @@ Piper thought about it.
 
 Impossible paths don’t always appear all at once. Sometimes they open one brave step at a time.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Red Sea crossing
+- **Theme Check:** Paths appear when courage and faith move first.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **6: Piper and the Parting Snow**?

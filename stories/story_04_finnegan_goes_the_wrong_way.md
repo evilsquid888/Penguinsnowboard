@@ -132,6 +132,12 @@ But he was glad he'd gone at all.
 
 Wrong turns happen. Good friends, honest apologies, and one very patient mountain can still bring you home.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Jonah
+- **Theme Check:** Running away usually adds extra snowdrifts.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **4: Finnegan Goes the Wrong Way**?

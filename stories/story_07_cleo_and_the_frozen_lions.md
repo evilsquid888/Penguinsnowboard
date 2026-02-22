@@ -126,6 +126,12 @@ She always would.
 
 Being true to who you are may feel lonely for a moment, but it fills the night with a courage that glows.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Daniel in the lions' den
+- **Theme Check:** Stay true even in a scary room.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **7: Cleo and the Frozen Lions**?

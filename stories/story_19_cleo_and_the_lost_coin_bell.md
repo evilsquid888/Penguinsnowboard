@@ -66,6 +66,12 @@ And when the bell rang again, the whole room cheered.
 
 Joy gets loud when what was lost is found—bells ring, seals clap, and cocoa refills itself (almost).
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Lost coin
+- **Theme Check:** Finding precious things sparks celebration.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **19: Cleo and the Lost Coin Bell**?

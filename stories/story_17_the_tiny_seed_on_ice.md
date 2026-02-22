@@ -61,6 +61,12 @@ They watched the tree sway in the evening wind, strong and gentle at once.
 
 Never mock small beginnings. Frostpeak has seen seeds split ice and kindness split fear.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Mustard seed
+- **Theme Check:** Tiny beginnings can become sheltering joy.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **17: The Tiny Seed on Ice**?

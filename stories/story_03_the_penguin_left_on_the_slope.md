@@ -114,6 +114,12 @@ Outside, the Deep Powder Forest was soft and still and silent, and the last of t
 
 Kindness is rarely flashy, but it always leaves warmer tracks than speed, trophies, or clever excuses.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Good Samaritan
+- **Theme Check:** Stop and help, even when it's inconvenient.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **3: The Penguin Left on the Slope**?

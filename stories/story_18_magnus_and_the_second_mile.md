@@ -59,6 +59,12 @@ Bjorn smiled into his thermos. "And yet."
 
 The second mile is where grumbles turn into grace and ordinary riders become unforgettable friends.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Go the second mile
+- **Theme Check:** Extra kindness changes both people.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **18: Magnus and the Second Mile**?

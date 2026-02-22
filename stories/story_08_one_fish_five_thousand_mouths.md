@@ -136,6 +136,12 @@ The twins looked at each other. Looked at the enormous gathering.
 
 Generosity multiplies in funny ways—one fish, one share, one smile, then suddenly everyone is full and laughing.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Feeding the 5,000
+- **Theme Check:** Share what you have; joy multiplies.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **8: One Fish, Five Thousand Mouths**?

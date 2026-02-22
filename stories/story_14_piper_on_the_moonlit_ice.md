@@ -117,6 +117,12 @@ And all three agreed that fear had lost this round.
 
 Courage is not the absence of wobble. It’s wobbling forward with your eyes on what matters most.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Peter on the water
+- **Theme Check:** Bravery happens while knees wobble.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **14: Piper on the Moonlit Ice**?

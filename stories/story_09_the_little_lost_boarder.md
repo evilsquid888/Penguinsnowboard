@@ -134,6 +134,12 @@ She suspected everyone.
 
 No one is ‘too small to search for’ and no one is ‘too far to bring back.’ Not in Frostpeak.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Lost Sheep
+- **Theme Check:** No one is too small or too lost.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **9: The Little Lost Boarder**?

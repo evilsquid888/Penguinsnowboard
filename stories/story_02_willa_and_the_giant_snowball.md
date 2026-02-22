@@ -160,6 +160,12 @@ Just the truest.
 
 So if you ever feel small, be Willa-small: steady feet, brave heart, and one excellent first step.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** David & Goliath
+- **Theme Check:** Small rider, big courage, bigger heart.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **2: Willa and the Giant Snowball**?

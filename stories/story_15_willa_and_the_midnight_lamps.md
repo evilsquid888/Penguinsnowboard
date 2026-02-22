@@ -81,6 +81,12 @@ They crossed that second line out immediately.
 
 Preparation may not look exciting at noon, but by midnight it feels like pure brilliance.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Wise and foolish virgins
+- **Theme Check:** Prepare early; midnight is not prep time.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **15: Willa and the Midnight Lamps**?

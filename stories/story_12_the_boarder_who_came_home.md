@@ -109,6 +109,12 @@ Then he smiled.
 
 Home is the place where grace waits with the porch light on, even when your board is late and your story is messy.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Prodigal Son
+- **Theme Check:** Home welcomes back messy travelers.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **12: The Boarder Who Came Home**?

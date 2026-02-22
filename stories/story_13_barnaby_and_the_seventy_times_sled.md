@@ -135,6 +135,12 @@ Teddy and Tilda joined in, laughing until stars came out and the whole valley so
 
 Forgiveness is not pretending the crash never happened. It’s choosing to ride together anyway.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Forgive 70x7
+- **Theme Check:** Forgiveness is a repeated practice.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **13: Barnaby and the Seventy-Times Sled**?

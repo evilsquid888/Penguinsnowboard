@@ -143,6 +143,12 @@ And they all agreed that both was excellent.
 
 When your thoughts feel stormy, borrow a calm voice, breathe slowly, and let peace do the steering.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Calming the storm
+- **Theme Check:** Peace can steady a panicked crew.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **11: The Night the Wind Stopped**?

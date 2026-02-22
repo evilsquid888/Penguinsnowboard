@@ -140,6 +140,12 @@ One by one, they carried each other home.
 
 Different voices can still sing one song—especially when everyone chooses listening over shouting.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Tower of Babel
+- **Theme Check:** Teamwork beats ego-tower chaos.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **10: The Tower of Snow**?

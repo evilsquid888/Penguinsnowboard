@@ -116,6 +116,12 @@ And the valley held them — all the made things, all the on-purpose things — 
 
 Wonder grows best in quiet places—especially the kind where everyone pauses long enough to say, ‘Wow.’
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Creation
+- **Theme Check:** Notice beauty, name goodness, celebrate wonder.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **5: The First Morning on Frostpeak**?

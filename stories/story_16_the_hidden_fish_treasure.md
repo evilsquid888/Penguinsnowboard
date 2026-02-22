@@ -75,6 +75,12 @@ Barnaby added one final note to the top of the pile:
 
 True treasure is what reshapes your heart—friends, joy, gratitude, and maybe a shared fish sandwich.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Hidden treasure
+- **Theme Check:** The best treasure reshapes your whole heart.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **16: The Hidden Fish Treasure**?

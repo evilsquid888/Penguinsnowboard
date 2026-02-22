@@ -132,6 +132,12 @@ And she did.
 
 And if tomorrow feels splashy or uncertain, remember: planning with love can turn panic into a perfectly floating adventure.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Noah's Ark
+- **Theme Check:** Build together before the storm and trust the warning.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **1: The Great Slush Flood**?

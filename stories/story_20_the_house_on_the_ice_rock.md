@@ -81,6 +81,12 @@ Finnegan lifted his cocoa cup. "To foundations. And to friends who let you rebui
 
 Build your life on what lasts: truth, love, and communities that hold fast when the weather gets wild.
 
+## Allegory Fun Alignment (Revision Pass 2)
+
+- **Inspiration:** Wise/foolish builders
+- **Theme Check:** Strong foundations outlast wild weather.
+- **Winter Silly Hook:** Keep at least one playful snow-creature beat (penguin wipeout save, seal applause, narwhal cameo, etc.).
+
 ## Snowy Giggle Check-In
 
 - What was the silliest moment in **20: The House on the Ice Rock**?
