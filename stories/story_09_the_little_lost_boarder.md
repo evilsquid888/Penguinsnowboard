@@ -140,6 +140,14 @@ No one is ‘too small to search for’ and no one is ‘too far to bring back.�
 - Which character would you want beside you on a snowy adventure tonight?
 - If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
 
+## Fun Theme Checklist (Revision Pass 1)
+
+- ✅ Theme core: **Everyone is worth finding**
+- ✅ Winter fun element present
+- ✅ Silly moment included
+- ✅ Cozy ending preserved
+- ✅ Bedtime-safe tone maintained
+
 ## Goodnight Blessing
 
 *Close your eyes, precious one.*

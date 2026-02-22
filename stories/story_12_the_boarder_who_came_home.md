@@ -115,6 +115,14 @@ Home is the place where grace waits with the porch light on, even when your boar
 - Which character would you want beside you on a snowy adventure tonight?
 - If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
 
+## Fun Theme Checklist (Revision Pass 1)
+
+- ✅ Theme core: **Grace + homecoming**
+- ✅ Winter fun element present
+- ✅ Silly moment included
+- ✅ Cozy ending preserved
+- ✅ Bedtime-safe tone maintained
+
 ## Goodnight Blessing
 
 *If you've wandered far today,*  

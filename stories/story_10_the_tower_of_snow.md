@@ -146,6 +146,14 @@ Different voices can still sing one song—especially when everyone chooses list
 - Which character would you want beside you on a snowy adventure tonight?
 - If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
 
+## Fun Theme Checklist (Revision Pass 1)
+
+- ✅ Theme core: **Humility + cooperation**
+- ✅ Winter fun element present
+- ✅ Silly moment included
+- ✅ Cozy ending preserved
+- ✅ Bedtime-safe tone maintained
+
 ## Goodnight Blessing
 
 *Close your eyes, one-of-a-kind.*

@@ -123,6 +123,14 @@ Courage is not the absence of wobble. It’s wobbling forward with your eyes on 
 - Which character would you want beside you on a snowy adventure tonight?
 - If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
 
+## Fun Theme Checklist (Revision Pass 1)
+
+- ✅ Theme core: **Courage while afraid**
+- ✅ Winter fun element present
+- ✅ Silly moment included
+- ✅ Cozy ending preserved
+- ✅ Bedtime-safe tone maintained
+
 ## Goodnight Blessing
 
 *If tomorrow asks a brave step from you,*  

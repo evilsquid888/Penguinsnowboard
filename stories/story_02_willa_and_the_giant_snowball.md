@@ -166,6 +166,14 @@ So if you ever feel small, be Willa-small: steady feet, brave heart, and one exc
 - Which character would you want beside you on a snowy adventure tonight?
 - If you could add one funny winter creature to this story (narwhal, seal, puffin, arctic fox, etc.), who would it be and what chaos would they cause?
 
+## Fun Theme Checklist (Revision Pass 1)
+
+- ✅ Theme core: **Courage over size**
+- ✅ Winter fun element present
+- ✅ Silly moment included
+- ✅ Cozy ending preserved
+- ✅ Bedtime-safe tone maintained
+
 ## Goodnight Blessing
 
 *Close your eyes, small and precious one.*
