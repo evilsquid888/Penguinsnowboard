@@ -25,6 +25,16 @@ Each story includes **image prompts** and **video prompts** for bringing the tal
 | 8 | [One Fish, Five Thousand Mouths](stories/story_08_one_fish_five_thousand_mouths.md) | Feeding of the 5,000 | Generosity & abundance |
 | 9 | [The Little Lost Boarder](stories/story_09_the_little_lost_boarder.md) | The Lost Sheep | You are always worth finding |
 | 10 | [The Tower of Snow](stories/story_10_the_tower_of_snow.md) | The Tower of Babel | Humility & celebrating difference |
+| 11 | [The Night the Wind Stopped](stories/story_11_the_night_the_wind_stopped.md) | Jesus Calms the Storm | Peace in fear |
+| 12 | [The Boarder Who Came Home](stories/story_12_the_boarder_who_came_home.md) | The Prodigal Son | Grace & homecoming |
+| 13 | [Barnaby and the Seventy-Times Sled](stories/story_13_barnaby_and_the_seventy_times_sled.md) | Forgive Seventy Times Seven | Forgiveness |
+| 14 | [Piper on the Moonlit Ice](stories/story_14_piper_on_the_moonlit_ice.md) | Peter Walks on Water | Courage while wobbling |
+| 15 | [Willa and the Midnight Lamps](stories/story_15_willa_and_the_midnight_lamps.md) | Wise and Foolish Virgins | Readiness |
+| 16 | [The Hidden Fish Treasure](stories/story_16_the_hidden_fish_treasure.md) | Hidden Treasure | True riches |
+| 17 | [The Tiny Seed on Ice](stories/story_17_the_tiny_seed_on_ice.md) | Mustard Seed | Small beginnings |
+| 18 | [Magnus and the Second Mile](stories/story_18_magnus_and_the_second_mile.md) | Go the Second Mile | Extra kindness |
+| 19 | [Cleo and the Lost Coin Bell](stories/story_19_cleo_and_the_lost_coin_bell.md) | The Lost Coin | Joy in finding |
+| 20 | [The House on the Ice Rock](stories/story_20_the_house_on_the_ice_rock.md) | Wise and Foolish Builders | Strong foundations |
 
 ---
 

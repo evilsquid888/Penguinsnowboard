@@ -148,6 +148,16 @@ These stories are inspired by ten beloved Bible stories, reimagined with wonder,
 | 8 | One Fish, Five Thousand Mouths | Feeding of the 5,000 | John 6:1–14 | Generosity, abundance |
 | 9 | The Little Lost Boarder | The Lost Sheep | Luke 15:1–7 | You are always worth finding |
 | 10 | The Tower of Snow | The Tower of Babel | Genesis 11:1–9 | Humility, working together |
+| 11 | The Night the Wind Stopped | Jesus Calms the Storm | Mark 4:35–41 | Peace in fear |
+| 12 | The Boarder Who Came Home | The Prodigal Son | Luke 15:11–32 | Grace and return |
+| 13 | Barnaby and the Seventy-Times Sled | Forgive Seventy Times Seven | Matthew 18:21–22 | Forgiveness |
+| 14 | Piper on the Moonlit Ice | Peter Walks on Water | Matthew 14:22–33 | Courage while afraid |
+| 15 | Willa and the Midnight Lamps | Wise and Foolish Virgins | Matthew 25:1–13 | Readiness and wisdom |
+| 16 | The Hidden Fish Treasure | Hidden Treasure | Matthew 13:44 | True treasure |
+| 17 | The Tiny Seed on Ice | Mustard Seed | Matthew 13:31–32 | Small beginnings, great growth |
+| 18 | Magnus and the Second Mile | Go the Second Mile | Matthew 5:41 | Extra kindness |
+| 19 | Cleo and the Lost Coin Bell | The Lost Coin | Luke 15:8–10 | Joy in finding what is precious |
+| 20 | The House on the Ice Rock | Wise and Foolish Builders | Matthew 7:24–27 | Strong foundations |
 
 ---
 
