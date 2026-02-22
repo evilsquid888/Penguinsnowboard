@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+Smart riders pack what they need before dark. Willa calls this ‘wisdom.’ Finnegan calls it ‘unfair preparedness.’
+
 ## The Story
 
 Every winter, Frostpeak Valley held the Midnight Lamps Parade.
@@ -72,6 +76,10 @@ And under that:
 They crossed that second line out immediately.
 
 ---
+
+## Cozy Landing
+
+Preparation may not look exciting at noon, but by midnight it feels like pure brilliance.
 
 ## Snowy Giggle Check-In
 

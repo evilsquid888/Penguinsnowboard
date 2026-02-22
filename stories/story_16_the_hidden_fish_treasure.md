@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+The best treasures are rarely the loudest things in the room—though Teddy and Tilda keep volunteering to test that theory.
+
 ## The Story
 
 One frosty morning, Barnaby opened an old cocoa tin and found a folded scrap of map paper inside.
@@ -66,6 +70,10 @@ Barnaby added one final note to the top of the pile:
 "To whoever reads this: There is still enough for one more."
 
 ---
+
+## Cozy Landing
+
+True treasure is what reshapes your heart—friends, joy, gratitude, and maybe a shared fish sandwich.
 
 ## Snowy Giggle Check-In
 

@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+Finnegan promised to follow directions this time, which is exactly what he says right before doing the opposite at top speed.
+
 ## The Story
 
 There was a task that needed doing in Frostpeak Valley.
@@ -123,6 +127,10 @@ He should have gone the first time.
 But he was glad he'd gone at all.
 
 ---
+
+## Cozy Landing
+
+Wrong turns happen. Good friends, honest apologies, and one very patient mountain can still bring you home.
 
 ## Snowy Giggle Check-In
 

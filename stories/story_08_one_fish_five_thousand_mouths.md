@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+Barnaby packed one fish, three napkins, and enough optimism to feed a mountain.
+
 ## The Story
 
 Every year, on the first clear day after the deepest cold had passed, the animals of Frostpeak Valley held the **Grand Snow Gathering**.
@@ -127,6 +131,10 @@ The twins looked at each other. Looked at the enormous gathering.
 "That's all it took," said Barnaby.
 
 ---
+
+## Cozy Landing
+
+Generosity multiplies in funny ways—one fish, one share, one smile, then suddenly everyone is full and laughing.
 
 ## Snowy Giggle Check-In
 

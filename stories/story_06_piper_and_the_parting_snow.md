@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+When the path looks impossible, Frostpeak experts recommend deep breaths, linked flippers, and at least one friend who yells encouraging nonsense.
+
 ## The Story
 
 There was a day when the animals of Frostpeak Valley found themselves in a very impossible situation.
@@ -117,6 +121,10 @@ Piper thought about it.
 *"That's the same thing,"* said Aurora.
 
 ---
+
+## Cozy Landing
+
+Impossible paths don’t always appear all at once. Sometimes they open one brave step at a time.
 
 ## Snowy Giggle Check-In
 

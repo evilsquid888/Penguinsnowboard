@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+Some heroes wear capes. Others carry emergency cocoa and know how to stop on black ice without dramatic flipper-waving.
+
 ## The Story
 
 One afternoon, a little penguin named **Pip** was snowboarding through the Deep Powder Forest trail alone.
@@ -105,6 +109,10 @@ Nora smiled into her soup.
 Outside, the Deep Powder Forest was soft and still and silent, and the last of the afternoon light fell through the pines in long golden columns, and somewhere a small bird was doing its best to sing the day to sleep.
 
 ---
+
+## Cozy Landing
+
+Kindness is rarely flashy, but it always leaves warmer tracks than speed, trophies, or clever excuses.
 
 ## Snowy Giggle Check-In
 

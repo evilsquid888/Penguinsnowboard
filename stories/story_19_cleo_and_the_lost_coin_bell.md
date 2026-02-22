@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+When something precious disappears, Cleo doesn’t panic—she lights a lamp, follows beauty, and listens for joy.
+
 ## The Story
 
 Cleo wore a tiny silver bell tied to her sketchbook.
@@ -57,6 +61,10 @@ Cleo retied the bell with stronger thread and whispered, "Welcome back."
 And when the bell rang again, the whole room cheered.
 
 ---
+
+## Cozy Landing
+
+Joy gets loud when what was lost is found—bells ring, seals clap, and cocoa refills itself (almost).
 
 ## Snowy Giggle Check-In
 

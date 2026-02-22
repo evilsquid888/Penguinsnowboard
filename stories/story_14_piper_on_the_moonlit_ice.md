@@ -9,6 +9,10 @@
 
 > *Some brave moments are loud. Some are quiet and shaky. Both still count.*
 
+## Opening Wink
+
+Moonlit ice is beautiful, wobbly, and deeply committed to testing everyone’s balance and bravery.
+
 ## The Story
 
 On a clear silver night, Frozen Mirror Lake stretched wide and dark, like a giant polished gem under the moon.
@@ -108,6 +112,10 @@ Aurora grinned. "I'll race you."
 And all three agreed that fear had lost this round.
 
 ---
+
+## Cozy Landing
+
+Courage is not the absence of wobble. It’s wobbling forward with your eyes on what matters most.
 
 ## Snowy Giggle Check-In
 

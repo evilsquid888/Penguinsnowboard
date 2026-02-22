@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+Cleo brought courage, a sketchbook, and exactly zero interest in pretending to be someone she isn’t.
+
 ## The Story
 
 Cleo Coldwater had a habit.
@@ -117,6 +121,10 @@ She drew everything.
 She always would.
 
 ---
+
+## Cozy Landing
+
+Being true to who you are may feel lonely for a moment, but it fills the night with a courage that glows.
 
 ## Snowy Giggle Check-In
 

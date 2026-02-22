@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+When one tiny boarder goes missing, the whole valley turns into a determined, snow-booted search party.
+
 ## The Story
 
 **Nora Snowmane** looked after a great many animals.
@@ -125,6 +129,10 @@ She never did find out who.
 She suspected everyone.
 
 ---
+
+## Cozy Landing
+
+No one is ‘too small to search for’ and no one is ‘too far to bring back.’ Not in Frostpeak.
 
 ## Snowy Giggle Check-In
 

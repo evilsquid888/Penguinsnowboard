@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+Tiny things can look silly at first—until one day they become forests, friendships, or very surprising miracles.
+
 ## The Story
 
 Nora placed a tiny seed in Willa's palm.
@@ -52,6 +56,10 @@ Nora added, "Most of God's best work starts quietly."
 They watched the tree sway in the evening wind, strong and gentle at once.
 
 ---
+
+## Cozy Landing
+
+Never mock small beginnings. Frostpeak has seen seeds split ice and kindness split fear.
 
 ## Snowy Giggle Check-In
 

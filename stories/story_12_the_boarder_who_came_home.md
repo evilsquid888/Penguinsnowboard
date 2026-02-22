@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+Some returns are quiet. Some are awkward. The best ones end with open doors, warm lights, and somebody saying, ‘There you are.’
+
 ## The Story
 
 Finnegan Flipsworth had an idea.
@@ -100,6 +104,10 @@ Then he smiled.
 "Turns out I was already somebody, right here."
 
 ---
+
+## Cozy Landing
+
+Home is the place where grace waits with the porch light on, even when your board is late and your story is messy.
 
 ## Snowy Giggle Check-In
 

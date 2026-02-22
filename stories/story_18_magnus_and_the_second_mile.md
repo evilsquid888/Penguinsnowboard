@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+Magnus is not ‘soft.’ He is merely ‘temporarily available for one additional act of kindness.’
+
 ## The Story
 
 A visiting snow fox twisted her ankle halfway up Long Traverse Trail, miles from shelter.
@@ -50,6 +54,10 @@ At the trailhead, Piper nudged Magnus. "You know you're a hero, right?"
 Bjorn smiled into his thermos. "And yet."
 
 ---
+
+## Cozy Landing
+
+The second mile is where grumbles turn into grace and ordinary riders become unforgettable friends.
 
 ## Snowy Giggle Check-In
 

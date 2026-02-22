@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+Before there were tracks, trophies, or snack wrappers, there was a hush so bright it practically sparkled.
+
 ## The Story
 
 Before there were slopes, there was silence.
@@ -107,6 +111,10 @@ Cleo smiled. "I know," she said to no one in particular.
 And the valley held them — all the made things, all the on-purpose things — in the blue and silver and quiet of the first stars.
 
 ---
+
+## Cozy Landing
+
+Wonder grows best in quiet places—especially the kind where everyone pauses long enough to say, ‘Wow.’
 
 ## Snowy Giggle Check-In
 

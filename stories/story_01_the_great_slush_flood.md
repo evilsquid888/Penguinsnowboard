@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+Tonight’s forecast: 20% snow, 80% heroic logistics, and a 100% chance that Piper launches before anyone finishes the safety briefing.
+
 ## The Story
 
 High above Frostpeak Valley, where the clouds bumped gently against the mountaintops like sleepy pillows, there lived a penguin named **Piper Paddlefoot**.
@@ -123,6 +127,10 @@ She grinned her biggest grin.
 And she did.
 
 ---
+
+## Cozy Landing
+
+And if tomorrow feels splashy or uncertain, remember: planning with love can turn panic into a perfectly floating adventure.
 
 ## Snowy Giggle Check-In
 

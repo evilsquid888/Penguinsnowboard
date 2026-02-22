@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+If courage were measured in inches, Willa would still break the mountain’s scoreboard.
+
 ## The Story
 
 **Willa Wobble** was the tiniest penguin in all of Frostpeak Valley.
@@ -151,6 +155,10 @@ Not the loudest. Not the biggest.
 Just the truest.
 
 ---
+
+## Cozy Landing
+
+So if you ever feel small, be Willa-small: steady feet, brave heart, and one excellent first step.
 
 ## Snowy Giggle Check-In
 

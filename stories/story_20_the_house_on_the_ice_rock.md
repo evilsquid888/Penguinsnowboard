@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+Storms love weak foundations. Frostpeak families prefer bedrock, teamwork, and roofs that don’t wobble in dramatic weather.
+
 ## The Story
 
 Bjorn and Finnegan both decided Frostpeak needed a new mid-slope rest hut.
@@ -72,6 +76,10 @@ Finnegan lifted his cocoa cup. "To foundations. And to friends who let you rebui
 "To both," everyone echoed.
 
 ---
+
+## Cozy Landing
+
+Build your life on what lasts: truth, love, and communities that hold fast when the weather gets wild.
 
 ## Snowy Giggle Check-In
 

@@ -7,6 +7,10 @@
 
 ---
 
+## Opening Wink
+
+The wind arrived loud, dramatic, and very convinced it was the main character.
+
 ## The Story
 
 On the calmest nights in Frostpeak Valley, the surface of Frozen Mirror Lake looked like polished silver.
@@ -134,6 +138,10 @@ Finnegan looked up and sighed. "Okay. Next time we do moonlight rides, we bring 
 And they all agreed that both was excellent.
 
 ---
+
+## Cozy Landing
+
+When your thoughts feel stormy, borrow a calm voice, breathe slowly, and let peace do the steering.
 
 ## Snowy Giggle Check-In
 

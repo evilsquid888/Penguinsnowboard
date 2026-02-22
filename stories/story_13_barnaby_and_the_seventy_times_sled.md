@@ -9,6 +9,10 @@
 
 > *Tonight's story is soft and honest. Sometimes hearts get bumped, just like sleds do.*
 
+## Opening Wink
+
+Barnaby says forgiveness is like hot cocoa: best served often, and with extra marshmallows.
+
 ## The Story
 
 Barnaby Beaksworth owned many wonderful things: a snack backpack with twelve hidden pockets, a soup ladle engraved with tiny fish, and a laugh that could warm a snowstorm.
@@ -126,6 +130,10 @@ Barnaby popped up first, snow on his head, laughing so hard he couldn't breathe.
 Teddy and Tilda joined in, laughing until stars came out and the whole valley sounded like joy.
 
 ---
+
+## Cozy Landing
+
+Forgiveness is not pretending the crash never happened. It’s choosing to ride together anyway.
 
 ## Snowy Giggle Check-In
 

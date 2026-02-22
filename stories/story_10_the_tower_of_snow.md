@@ -10,6 +10,10 @@
 
 ---
 
+## Opening Wink
+
+Building something tall is easy. Building something together without arguing about left versus right? That’s the advanced course.
+
 ## The Story
 
 For a brief and rather silly period in the history of Frostpeak Valley, everyone decided to build a tower.
@@ -131,6 +135,10 @@ Teddy fell asleep against Magnus's side. Tilda fell asleep against Nora's side. 
 One by one, they carried each other home.
 
 ---
+
+## Cozy Landing
+
+Different voices can still sing one song—especially when everyone chooses listening over shouting.
 
 ## Snowy Giggle Check-In
 
