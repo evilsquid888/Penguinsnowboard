@@ -1,0 +1,2 @@
+# Prefer the branch's expanded story content when resolving merges.
+stories/story_*.md merge=ours
