@@ -1,9 +1,9 @@
 # Penguins on Snowboards & Polar Bears on Skis
-## 20 Bedtime Stories from Frostpeak Valley
+## 100 Bedtime Stories from Frostpeak Valley
 
 ---
 
-A collection of 20 original bedtime stories set in the snowy, magical world of **Frostpeak Valley** — where penguins ride snowboards, polar bears carve the slopes on skis, and winter creatures bring giggles to every trail. Each story is a playful winter allegory inspired by a beloved Bible story, reimagined with wonder, warmth, and just the right amount of silliness for little dreamers.
+A collection of 100 original bedtime stories set in the snowy, magical world of **Frostpeak Valley** — where penguins ride snowboards, polar bears carve the slopes on skis, and winter creatures bring giggles to every trail. Each story is a playful winter allegory inspired by a beloved Bible story, reimagined with wonder, warmth, and just the right amount of silliness for little dreamers.
 
 Each story includes **image prompts** and **video prompts** for bringing the tales to life visually, plus a soothing **Goodnight Blessing** to close each night.
 
@@ -11,7 +11,7 @@ Each story includes **image prompts** and **video prompts** for bringing the tal
 
 ---
 
-## The Stories
+## Core Stories (1–20)
 
 | # | Title | Bible Inspiration | Theme |
 |---|---|---|---|
@@ -61,3 +61,13 @@ See the full [Character & Story Guide](CHARACTER_AND_STORY_GUIDE.md) for:
 *"He gives sleep to his beloved." — Psalm 127:2*
 
 *Sweet dreams from Frostpeak Valley.*
+
+---
+
+## Full 100-Story Collection
+
+Explore the complete linked catalog (stories 1–100):
+
+- [Frostpeak Valley: 100 Silly Winter Bible Bedtime Stories](FROSTPEAK_100_BIBLE_BEDTIME_STORIES.md)
+
+All stories live in the [`stories/`](stories) folder as individual files and follow the same bedtime format (story, cozy landing, blessing, image prompts, and video prompts).
