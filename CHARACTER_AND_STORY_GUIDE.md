@@ -162,3 +162,13 @@ After edits, verify:
 
 *"He gives sleep to His beloved." — Psalm 127:2*  
 *Now zip your sleeping bag, sip imaginary cocoa, and drift to dream-snow.*
+
+---
+
+## EXPANDED COLLECTION NOTE
+
+The project now includes an expanded **100-story** collection.
+- Core Story Guide table above highlights the foundational first 20 stories.
+- For the full linked list of stories 1–100, see [FROSTPEAK_100_BIBLE_BEDTIME_STORIES.md](FROSTPEAK_100_BIBLE_BEDTIME_STORIES.md).
+- Each story exists as an individual file in [`stories/`](stories) and includes a Goodnight Blessing plus image/video prompts.
+
