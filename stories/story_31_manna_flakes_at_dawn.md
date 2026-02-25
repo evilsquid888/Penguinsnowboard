@@ -8,29 +8,117 @@
 
 ## Opening Wink
 
-Some nights the wind whistles; tonight it hummed like it knew a secret worth sharing.
+*Revision Pass 3 Spark:* The flakes tasted different to each creature — Finnegan tasted fish crackers, Cleo tasted something like cinnamon warmth, and nobody asked Magnus what his tasted like because he was crying a little.
+
+Some nights the wind whistles; tonight it hummed like it knew a secret worth sharing. The manna flakes only appeared once. They only needed to.
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Dawn Flats for the winter challenge of the day: **snowshoe breakfast run**.
+The storm had trapped them for three days.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+It had come in from the north with no warning and no apology, a wall of white that turned Dawn Flats into a blank, directionless white room. **Tovi Ptarmigan** — a calm, round bird who ran the Flats Trail supply depot — had sent out the emergency signal the moment visibility dropped: three short flare-bursts, which in Frostpeak meant *come to me, I have shelter, do not ski in this.*
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+By the end of the first day, fourteen creatures had found their way to the depot and piled in: penguins, a polar bear family, two snow foxes, **Barnaby Beaksworth** (who had been on a delivery run and had fortunately been carrying his full supply cart), and Tovi herself, who had stocked the depot carefully at the start of winter and was now doing rapid mental mathematics.
 
-That was when the old story came to mind: **Manna in the Wilderness — Exodus 16**.
+The mathematics were not encouraging.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+"We have," Tovi said, looking at the shelves, "enough for two more days. Three if we're careful."
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"How long might the storm last?" asked the larger of the two snow foxes.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Daily trust**.
+Tovi looked out the frosted window at the absolute whiteness. "Unknown. This type of system can run four days. Or seven."
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+A quiet settled over the depot. Not panic — the creatures of Frostpeak were good at not panicking — but a particular kind of quiet that meant everyone was doing their own version of Tovi's mathematics.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"Barnaby has the supply cart," said a young polar bear cub.
 
-No one promised that part.
+"I do," said Barnaby. "It's already in the count. We're sharing everything equally."
+
+"What if we—" started Finnegan, who had also made it to the depot and was now wedged between a flour sack and a set of trail markers.
+
+"If you say we should ration extra for the fast skiers," said Piper, "I will personally—"
+
+"I was going to say we should probably eat the fish crackers first because they'll go stale fastest."
+
+"Oh," said Piper. "That's actually smart."
+
+"I have occasional smart moments," said Finnegan, with dignity.
+
+They ate carefully on day three. They ate more carefully on day four. On the morning of day five, Tovi looked at the remaining supplies and said, quietly, so only Barnaby heard: "We'll be very short tomorrow."
+
+"I know," Barnaby said.
+
+"I packed for emergencies but not for a week."
+
+"I know."
+
+"Are you worried?" she asked.
+
+Barnaby thought about this. "Yes," he said honestly. "But I'm also — I don't know how to explain it. I feel like we'll have what we need, even if I can't see exactly how yet."
+
+Tovi looked at him sideways. "That's either faith or delusion."
+
+"Sometimes," said Barnaby, "those are two words for the same sunrise."
+
+---
+
+On the morning of the sixth day, **Cleo** woke up first.
+
+She went to the window and scraped a circle of frost away to see through it, expecting more white — the same featureless wall of storm — and stopped.
+
+The storm had broken.
+
+The sky was that particular shade of pale gold that only happens in the first minutes of dawn, before the sun has fully committed to being up. Dawn Flats lay perfectly still beneath it, freshly blanketed in untouched snow.
+
+And across the surface of the snow, catching the early light, were flakes.
+
+Not snowflakes — the snow had stopped. Something else. Pale, translucent, scattered across the Flats in a thin layer, catching the light like tiny prisms. They lay on top of the snow the way frost sometimes does — delicately, deliberately.
+
+"Cleo?" said Barnaby, coming to look.
+
+They woke everyone up.
+
+The whole group stood at the depot door and looked at the Flats in the golden dawn light.
+
+"What is it?" said Tovi.
+
+"I don't know," said Cleo.
+
+Barnaby walked out first, crouched down, and touched the nearest flake. It was real — solid, slight, with a faint warmth that didn't make sense in the cold. He tasted it.
+
+His eyes went wide.
+
+"Fish," he said. "It tastes — it's like the best sardine I've ever had, but lighter. Like a sardine got made into a cloud."
+
+Finnegan ran out and tasted one. He made the face of someone being surprised by an important flavor. "Mine tastes like fish crackers. The fancy kind."
+
+Cleo tasted one and went very still. "Mine tastes like warmth," she said. "Like sunlight on snow. Like the feeling of finishing a drawing and it's exactly right."
+
+Tovi tasted one and sat down in the snow. "It tastes like the first season I ran this depot and everything went well. Like proof that I was in the right place."
+
+Magnus, who had emerged last and grumpily, tasted one and said nothing for a long moment.
+
+Then, very quietly, so the cubs wouldn't hear: "It tastes like home."
+
+---
+
+They gathered what they needed. They couldn't stockpile — Barnaby tried to collect extra and they dissolved before he made it inside, as though they could only be used in the moment. But there were enough. They ate. They were full. And when the sun fully rose over Dawn Flats, the flakes were gone, leaving only unblemished snow and the memory of an impossible breakfast.
+
+The path home was clear. By midday, they were back in the valley.
+
+That evening, in the Warming Hut, everyone had a different story about what the flakes had tasted like, and every version was different, and every version was right.
+
+"It gave everyone what they needed," said Willa, listening. "Not what they had saved. Not what they could store. Just enough for the day."
+
+"Every day?" said one of the fox cubs.
+
+"I think," said Willa, "that if you're ever in Dawn Flats again and you need them, you'll find them."
+
+"How do you know?"
+
+Willa smiled. "Because that's what they were made for."
+
+Outside, the aurora bloomed over Frostpeak Valley, green and bright, and somewhere at the depot, Tovi restocked her shelves for next time — carefully, faithfully, and with a little more trust than before that the mathematics of need and provision are sometimes calculated differently than they appear.
 
 ---
 
