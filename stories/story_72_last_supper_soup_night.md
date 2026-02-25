@@ -12,25 +12,69 @@ Tonight's forecast: 30% snowfall, 70% giggles, and a 100% chance somebody forget
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Upper Lodge for the winter challenge of the day: **team supper**.
+**Luca Lynx** did not know how to cook.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+This was, in most circumstances, not a problem — Frostpeak Valley had Barnaby, who cooked better than anyone and seemed to genuinely enjoy feeding creatures, and there were plenty of other options. But this season, Luca had decided to host the team supper for his crew at Upper Lodge, and he had decided — with the particular determination of someone who has not fully thought through the implications — to cook it himself.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+"You don't have to cook it yourself," said **Barnaby Beaksworth** when Luca mentioned this.
 
-That was when the old story came to mind: **The Last Supper — Luke 22**.
+"I want to," said Luca.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+"I can come and—"
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"Barnaby." Luca looked at him with the dignity of a lynx who had made a decision. "I would like to feed my friends for once instead of always being fed. I know it will not be your standard. But it will be mine."
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Love that serves**.
+Barnaby looked at Luca for a moment. Then he said: "All right. What are you making?"
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"Soup," said Luca. "Soup is straightforward."
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+Barnaby made a face that he turned into a neutral expression before Luca could read it. "Would you like a recipe?"
 
-No one promised that part.
+"Yes. A simple one."
+
+Barnaby wrote him the simplest recipe he knew — the good thick vegetable soup, the one that was hard to ruin if you followed the steps — and gave him a list of what he'd need and where to get it and watched Luca go with the expression of someone who was going to spend the next six hours thinking about stock.
+
+---
+
+The soup took three hours.
+
+Not because it was complicated. Because Luca was determined to do it right, which meant he consulted the recipe repeatedly, tasted at every stage (he had many opinions about salt as it turned out), and had a fifteen-minute period in the middle where he was convinced the onions were wrong somehow. They were not wrong. They were onions. He continued.
+
+By the time his six teammates arrived at Upper Lodge, the room smelled wonderful — the good warm smell of a real soup, properly made, sitting on a fire that had been tended carefully all afternoon.
+
+Luca served it himself.
+
+He went around the table and ladled each bowl individually, which took longer than just putting the pot in the middle but which felt, to him, like the right way to do it — to put the food in front of each creature specifically, not just in reach of all of them generally. Pip Starling got an extra piece of bread because she'd mentioned she was hungry. Jobi Yak's bowl went to the warmest end of the table because Jobi always ran cold. Finnegan got a smaller bowl first because Luca knew he'd ask for more and wanted him to enjoy the asking.
+
+The table went quiet in the way that tables go quiet when food is genuinely good and everyone knows it.
+
+"Luca," said Cleo, after a long moment. "This is very good."
+
+"It's Barnaby's recipe."
+
+"Barnaby's recipe and your afternoon," said Nora. "Both matter."
+
+Luca sat down with his own bowl. It was, he admitted to himself, quite good. Not the same as Barnaby's version — different in small ways, more hesitant in some places, accidentally bolder in others — but genuinely good and genuinely his.
+
+"Why did you want to do this yourself?" said Pip.
+
+Luca thought about it. "I'm always receiving," he said. "Always being taken care of. I wanted to be the one who—" he gestured at the table, the soup, the evening. "I wanted to give something that cost me something."
+
+A quiet around the table.
+
+"The bread," said Finnegan, who processed emotions through practical observations, "is also very good. Did you make the bread too?"
+
+"No," said Luca. "The bread is from Barnaby."
+
+"So Barnaby did help."
+
+"Barnaby always helps," said Luca. "But tonight the soup was mine."
+
+They ate together as the aurora came up outside the Upper Lodge windows, and Luca went around with the pot a second time, and a third, and by the end everyone was full and warm and the soup was gone and it had been exactly what he'd hoped: a meal that was completely about them, offered freely, made with care.
+
+Love that serves doesn't wait to be in charge before it shows up. It just shows up, puts on an apron, and makes the soup.
+
+---
 
 ---
 

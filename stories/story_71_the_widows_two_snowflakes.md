@@ -12,25 +12,83 @@ Some nights the wind whistles; tonight it hummed like it knew a secret worth sha
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Giving Gazebo for the winter challenge of the day: **charity skate**.
+The Giving Gazebo stood at the top of the main slope, open on all sides with a good roof, and every winter it hosted the Frostpeak Valley Community Fund collection — three weeks in which creatures could leave whatever they could spare for the valley's winter relief fund, which helped with emergency equipment, heating costs for creatures in need, and Barnaby's free-soup program at the Warming Hut.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+Big creatures often made big contributions. Sverre the snow leopard had deposited an impressive stack of coins last season. Bela Bear had donated a season pass. Roderick the Ram had left something theatrical in a sealed envelope that turned out to be both generous and accompanied by a very long letter about his philosophy of giving.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+**Willa Wobble** was watching the Giving Gazebo from the path one afternoon when she saw **Wida Wren** approach.
 
-That was when the old story came to mind: **Widow's Offering — Mark 12**.
+Wida was a small wren — very small even by wren standards — with brown-and-cream feathers and the careful, considered quality of someone who had learned to live thoughtfully on limited means. She had lost her partner two winters ago and had been managing on her own since, which she did quietly and without complaint. She brought seedcake to the Warming Hut on Thursdays. She checked on the youngest riders when they were struggling. She sent notes when creatures were ill.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+She approached the Giving Gazebo with both wings cupped in front of her. She set something in the collection box. Willa couldn't see what.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+Then she nodded to the box — a small, private nod — and flew away.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Small gifts matter**.
+Willa went to look.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+Two tiny silver coins. So small they were nearly lost against the wooden bottom of the collection box.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+---
 
-No one promised that part.
+Later, at the Warming Hut, Willa sat with the others and thought about what she'd seen.
+
+"She gave two coins," she said. "Wida Wren."
+
+"How many?" said Bjorn.
+
+"Two. Small ones."
+
+Bjorn nodded. Cleo looked up from her sketchbook. Nora was quiet, listening.
+
+"Sverre gave forty," said Willa. "Bela gave a season pass. Roderick's envelope was—"
+
+"Substantial," said Nora.
+
+"Substantial," Willa agreed. "And two small coins is — I mean, in terms of the fund's total—"
+
+"Almost nothing," said Bjorn.
+
+"Almost nothing," said Willa.
+
+A pause.
+
+"But," said Willa.
+
+"But," said Cleo, who had been waiting for the but.
+
+"She has almost nothing. I know her situation. Two coins might be — her whole coin reserve. Everything she kept back for emergency gaps."
+
+The Warming Hut was quiet.
+
+"She gave her everything," said Nora. "Not her surplus. Her everything."
+
+Willa turned her cocoa mug in her flippers. She thought about the nod Wida had given the collection box — the small, private, sincere gesture of someone who had given something real and was at peace with it.
+
+"The large gifts are large," said Cleo. "But they cost the givers something relatively small. Two coins from Wida costs her — actually, proportionally, it's—"
+
+"More than any of us gave," said Bjorn.
+
+"More than any of us gave," Cleo agreed.
+
+The fire in the hut crackled. Someone added another log.
+
+"I want to do something for her," said Willa. "But not obviously. Not in a way that embarrasses her. She gave quietly. She wouldn't want—"
+
+"Thursday," said Barnaby, appearing with a fresh pot. "She brings seedcake every Thursday."
+
+"Yes."
+
+"The seedcake she brings is very good." He poured without being asked. "Perhaps someone ought to find out what her favorite soup is."
+
+He went back to the kitchen without saying more. He had a way of suggesting things with exceptional efficiency.
+
+On Thursday, when Wida Wren brought her seedcake to the Warming Hut, there was a pot of mushroom-barley soup waiting — the kind with the wild herbs, Wida's favorite, which Barnaby had gotten the recipe for from Sylvester's brother three seasons ago. There was a note on the pot that said nothing except *with thanks, from the valley*, and no names.
+
+Wida sat down, ate her soup, and left her seedcake in exchange, which was a perfectly balanced transaction and also, in some way, proof that the two small coins had come all the way around.
+
+Small gifts matter. Not because of what they add to the total — but because of what they reveal about the one who gives them.
+
+---
 
 ---
 

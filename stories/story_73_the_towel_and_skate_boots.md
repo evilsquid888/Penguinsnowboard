@@ -12,25 +12,57 @@ If moonbeams had mittens, this would be the night they came out to clap for the 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Locker Lodge for the winter challenge of the day: **cleanup relay**.
+The Locker Lodge at Frostpeak Valley was where everyone changed into their gear before heading to the slopes, and every Friday evening there was a tradition called **Boot Night**: the newest or least experienced riders would polish and condition their skate boots and skis, learning the maintenance that kept equipment working well.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+**Jessie Jay** was the one who ran Boot Night.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Jessie was a jay — deep blue, with a sharp crest and quick eyes — who had been at Frostpeak Valley for six seasons. In terms of seniority, he was one of the most experienced riders in the group. In terms of Boot Night, he was the one on his knees with a towel, cleaning boot buckles.
 
-That was when the old story came to mind: **Jesus Washes Feet — John 13**.
+This confused **Bjorn Bigpaws** the first time he saw it.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+"You could be doing anything on a Friday evening," said Bjorn, watching Jessie work on a particularly stubborn strap. "You have more seniority than half the people whose boots you're cleaning."
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"I know," said Jessie.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Servant leadership**.
+"Usually the experienced creatures are the ones who — they teach, they demonstrate, they—"
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"Stand at the front," said Jessie.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"Yes."
 
-No one promised that part.
+"Standing at the front isn't the most useful place to be," said Jessie. He moved to the next pair of boots. "The most useful place is where the work is."
+
+Bjorn sat down on the locker bench. "What does it teach them, watching you clean their boots?"
+
+Jessie thought about it. "It teaches them that the person who's been here longest thinks boot maintenance matters. It teaches them that no task is beneath the people who care most about this place. And—" he buffed the toe of a small penguin's boot until it shone "—it teaches them that being served doesn't make you lesser. Letting someone help you is a skill too."
+
+Bjorn was quiet.
+
+"Pete Penguin was embarrassed last week," said Jessie. "First time at Boot Night. Couldn't believe I was going to touch his boots. Kept saying he could do them himself."
+
+"What did you do?"
+
+"Kept going," said Jessie. "He relaxed after a minute. By the end he was watching what I was doing and asking questions about the inner sole. Next week he cleaned his own boots and showed Pip how to do hers."
+
+Bjorn looked around the Locker Lodge — eight young riders on benches, some watching Jessie, some doing their own maintenance, one very small snow hare who had fallen asleep clutching a boot brush.
+
+"You're not cleaning their boots," said Bjorn. "You're teaching them what care looks like."
+
+"I'm doing both," said Jessie. "They go together."
+
+He finished the last boot in the row and sat back on his heels. "You want to help? I could use someone to check the binding screws on the younger riders' skis — the newer ones don't always torque them correctly and it's a safety issue."
+
+"I don't know how," said Bjorn.
+
+"I'll show you," said Jessie. "Then next week you show someone else."
+
+Bjorn picked up the screwdriver that Jessie handed him.
+
+The Lodge was warm and smelled of boot oil and pine, and the aurora was just beginning through the high windows, and Bjorn worked next to Jessie and learned the torque and the angle and the small attentive knowledge that keeps things safe, and when they finished, every boot was polished and every binding was correct, and the youngest riders went home better equipped than they'd arrived, which was the whole point of Friday evening.
+
+Serve with a towel. Lead from the floor. The highest place, it turns out, is often the one closest to the work.
+
+---
 
 ---
 
