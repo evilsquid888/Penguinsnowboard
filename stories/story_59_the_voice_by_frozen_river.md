@@ -12,25 +12,85 @@ Some nights the wind whistles; tonight it hummed like it knew a secret worth sha
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward River Reeds for the winter challenge of the day: **riverbank plunges**.
+There was a jay who had been living by the River Reeds for two winters, and nobody quite knew what to make of him.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+**Juno Jay** was a Steller's jay — dark blue with a dramatic black crest that he wore at all times like a very serious hat — and he had the particular quality of creatures who have made peace with being thought unusual. He wore a patchwork scarf made from scraps of many different colors, he ate mostly juniper berries and dried seeds and didn't seem to need much else, and he stood on the frozen riverbank almost every morning calling out things to whoever passed.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Not unpleasant things. Not loud things. Just — things that felt important.
 
-That was when the old story came to mind: **John the Baptist — Matthew 3**.
+"There's a fresh page this morning if you want it!" he might call.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Or: "Whatever you've been dragging along — you could set it down. The snow would take it."
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+Or, on one particularly memorable morning: "THE RIVER IS FROZEN BUT YOU DON'T HAVE TO BE."
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Fresh starts**.
+That last one had made Finnegan Flipsworth stop dead on his morning ski past, stare at Juno for a full ten seconds, and then ski onward without a word, which everyone who knew Finnegan recognized as a sign of genuine impact.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+**Piper Paddlefoot** had been walking past the River Reeds every morning for six weeks without stopping. She was a small, sturdy duck with sensible waterproof feathers and the expression of someone who had a lot on her mind. The fresh-start thing seemed theoretical to her. She had made mistakes in the previous season — some arguments that had ended wrong, some promises she hadn't kept, a falling-out with a friend she hadn't known how to repair — and they sat on her like snow on a branch, getting heavier the longer they stayed.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+She stopped one morning, finally, because Juno had said something different.
 
-No one promised that part.
+"You can start again without understanding everything that went wrong first," he called from his riverbank post, not looking at her specifically — just calling it out, the way he called everything out. "Sometimes you start first and the understanding comes after."
+
+Piper stopped. She stood on the path and looked at the jay.
+
+"What if starting again means having to see the person you hurt?" she said. Not loudly. Just trying it out.
+
+Juno turned to look at her properly for the first time. "Yes," he said. "Usually it does."
+
+"What if you don't know what to say?"
+
+"'I'm sorry' is a very good place to begin," said Juno. "It's three words. You know all three of them."
+
+Piper looked at the frozen river. The light was early and the ice was blue-white and the snow on the far bank was completely unmarked — not a single track, new as anything.
+
+"It's cold today," she said.
+
+"Very," said Juno.
+
+"I might come back tomorrow."
+
+"I'll be here," said Juno.
+
+---
+
+She did come back. For four mornings she came and stood on the bank and Juno talked to her — not preaching, exactly, more like offering things she could take or leave. He told her that fresh starts were not the same as pretending the old thing hadn't happened. He told her that the river froze over every year and ran again every spring and neither state was permanent. He told her that the heaviness she was carrying was real, but she didn't have to carry it indefinitely.
+
+On the fifth morning, Piper came to the River Reeds and waded into the shallows — just the shallow unfrozen edge where the current ran — and stood in the cold water up to her ankles for about thirty seconds.
+
+It was extremely cold.
+
+"OKAY," she said, with great conviction, "I AM READY TO START AGAIN."
+
+Then she waded out very quickly, because she was a duck and perfectly equipped for cold water but it was still very cold.
+
+Juno watched from his post. "That," he said, "was very dramatic."
+
+"I felt it needed to be dramatic," said Piper.
+
+"Fair."
+
+She shook the water off her feet and pulled her boots back on and stood on the frozen bank feeling ridiculous and also, somehow, lighter. The weight was not entirely gone. But it had shifted.
+
+"The friend," she said. "The one I need to apologize to."
+
+"Yes?"
+
+"I'm going to find her today."
+
+"Good," said Juno. He turned back to the river, straightening his crest. "Let me know how it goes, if you like."
+
+"You'll probably hear from the riverbank anyway," said Piper.
+
+"I often do," said Juno.
+
+She found her friend that afternoon, at the Warming Hut, and said *I'm sorry* — all three words, in the right order — and it was hard and awkward and took longer than three words because the words needed explaining, and at the end of it both of them were a little wrung out and also clearly okay.
+
+On the way home she stopped by the River Reeds, but Juno was not there. Just the river, moving under the ice. Just the unmarked snow on the far bank.
+
+Fresh, still.
+
+---
 
 ---
 

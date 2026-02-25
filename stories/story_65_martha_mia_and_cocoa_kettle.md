@@ -12,25 +12,97 @@ If moonbeams had mittens, this would be the night they came out to clap for the 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Cocoa Cottage for the winter challenge of the day: **kitchen biathlon**.
+**Willa Wobble** had come to Cocoa Cottage on a Tuesday afternoon to visit, and the sisters were very different about it.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+**Mia Mink** took Willa's coat at the door and sat down immediately, cross-legged on the floor cushions, and said: "Tell me everything. How was the north face this morning? And the thing with the Nestling Flock — did it resolve?"
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Willa sat down too, and they were immediately deep in conversation — the comfortable, unhurried kind, where one story leads to another and before you know it an hour has gone by and you haven't moved.
 
-That was when the old story came to mind: **Mary and Martha — Luke 10**.
+**Martha Marmot**, meanwhile, was in the kitchen.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Martha was making cocoa — good cocoa, the real kind, with the good dark powder and the milk warmed to exactly the right temperature and the tiny pinch of salt that made all the difference. She was also arranging the biscuits on the good plate (the round one with the blue border, which she only brought out for proper guests), warming the second cup in case the first one cooled too quickly, and wondering why she was doing all of this alone.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+She came to the kitchen doorway and looked at Mia and Willa on the floor cushions, laughing about something.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Presence over fussing**.
+"Mia," she said.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+Mia looked up.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"The biscuits need arranging."
 
-No one promised that part.
+"They'll be fine," said Mia.
+
+"The second cocoa needs watching."
+
+"Willa doesn't mind waiting."
+
+"I don't mind at all," said Willa cheerfully.
+
+"Someone," said Martha, in the tone of someone who has been extremely patient and is ending that phase, "should be helping."
+
+A small silence.
+
+"Martha," said Willa, gently, "come sit down."
+
+"The kettle—"
+
+"Has a whistle," said Willa. "We'll hear it."
+
+"The biscuit arrangement—"
+
+"Is already lovely," said Willa. "I can see it from here. The round plate with the blue border. It's perfect."
+
+Martha looked at the plate she had been about to improve. It did look nice, actually.
+
+"Sit," said Willa. "I came to see *you*, not the biscuits."
+
+Martha stood in the doorway for another moment. She was aware, dimly, that she was arguing for the right to remain stressed in her own kitchen, which was not the triumph it felt like from the inside.
+
+She sat down.
+
+The kettle whistled. Mia got up, poured the cocoa with approximately sixty percent of Martha's precision (she only added the tiny pinch of salt because Martha said it from the floor, pointedly), and handed around the good cups.
+
+The biscuits were on the round plate, un-rearranged.
+
+The cocoa was warm.
+
+And Willa was talking about the north face, about the way the light had been in the trees this morning, and the thing with the Nestling Flock had resolved beautifully actually, and the afternoon passed the way afternoons should when there is someone worth talking to and the cocoa is warm and nobody is arranging biscuits when they could be listening instead.
+
+---
+
+Later, when Willa had gone home and the good cups were being washed, Martha was quiet.
+
+"She didn't care about the biscuit arrangement," she said.
+
+"No," said Mia.
+
+"She came to talk."
+
+"Yes."
+
+"And I spent the first forty minutes not talking."
+
+Mia dried a cup carefully. "You made very good cocoa, though."
+
+Martha took the cup from her. "The biscuits were fine without rearranging."
+
+"They really were," Mia agreed. "The blue-border plate does all the work."
+
+"I know that," said Martha. "I just — when there's a guest, I feel like everything has to be — exactly—"
+
+"Ready," said Mia. "But Martha. *You're* what she comes for. Not the readiness."
+
+Martha looked at the stack of good cups on the drying rack. She thought about the forty minutes of conversation she'd missed while standing in the kitchen doorway worrying about biscuits.
+
+"Next time," she said, "I'll sit first."
+
+"And the kettle?"
+
+"Has a whistle," said Martha. "Apparently."
+
+They both laughed, and the cottage was warm, and it was a good Tuesday.
+
+---
 
 ---
 

@@ -12,25 +12,63 @@ Some nights the wind whistles; tonight it hummed like it knew a secret worth sha
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Market Square for the winter challenge of the day: **gear swap slalom**.
+**Pearla Penguin** had been searching for the perfect powder run for three seasons.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+She was a penguin with a collector's soul — specific, thorough, and deeply particular. Most creatures in Frostpeak Valley looked for good snow when they rode; Pearla looked for *perfect* snow — the specific combination of temperature, depth, texture, and slope angle that produced what old riders called "pearl powder": weightless, uniform, so responsive under the board that you almost didn't feel the mountain, just the movement.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+She'd found close to it three times. She'd written them all down in a little book with illustrations. But each time there was something: the angle was slightly off, or the run ended too soon, or the temperature changed after the first two laps and the consistency went ordinary.
 
-That was when the old story came to mind: **Pearl of Great Price — Matthew 13:45–46**.
+She found it on the last Tuesday of February, on an unmarked stretch of the north face above Market Square.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+She almost didn't go that way. She was headed somewhere else, took a wrong turn in the morning fog, and came down a line she'd never skied before — and the snow was *exactly* right. Every element, simultaneously, perfectly calibrated. She did four laps before she could bring herself to stop, and by the fourth one she was crying slightly, which was embarrassing but also just honest.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+She went to the valley's Market Square gear exchange — the big twice-yearly event where riders traded and sold equipment — with a specific purpose.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Choosing what matters most**.
+**Cleo Coldwater** found her there, sitting in the middle of the exchange with a look of calculation on her face and her entire collection of specialty equipment laid out around her: the competition board she'd spent two seasons saving for, the set of handmade poles from the eastern craftsman, the racing suit she'd only worn twice, the altitude goggles with the rose tint.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"What are you doing?" said Cleo.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"Trading," said Pearla. "All of it."
 
-No one promised that part.
+"For what?"
+
+"There's a parcel of the north face above this square. Small — about twenty meters wide, accessible from the unmarked traverse. The valley holds it in a scenic reserve but doesn't actively maintain it." Pearla looked at her equipment spread on the snow. "You can purchase the maintenance rights and usage designation from the valley fund. It costs a specific amount."
+
+"The amount of all your equipment."
+
+"About that, yes."
+
+Cleo sat down. "Pearla. Your competition board—"
+
+"I can get another board. They make more boards. They don't make more of *that* snow." Pearla met Cleo's eyes. "I found the pearl powder. Real pearl powder — all five conditions at once. I'm not going to discover it and then leave it unsecured."
+
+"What does the maintenance designation do?"
+
+"Gives me the right to keep the access clear and the surface conditions managed. And to decide who knows about it." She paused. "I'll tell people. But carefully. The right people, at the right times."
+
+Cleo looked at the equipment, then at the north face above them, then at Pearla.
+
+"You've thought about this," she said.
+
+"Since Tuesday morning."
+
+"And you're sure."
+
+"I skied it four times," said Pearla, "and cried on the last one. Yes. I'm sure."
+
+She sold the equipment across the course of the morning — the board first, to a young snow leopard who needed a first good board and would use it well; the poles to a racer who'd broken hers last week; the racing suit to the Nestling Flock's Pip Starling, who lit up when she tried it on. Each piece went to someone who needed it. By afternoon, the collection was gone.
+
+She took the accumulated proceeds to the valley fund, filled out the paperwork, and walked home with nothing but her everyday board, her everyday poles, and the maintenance rights to twenty meters of the most perfect snow in the mountain.
+
+Cleo walked with her.
+
+"How do you feel?" said Cleo.
+
+"Lighter," said Pearla, which was true in more ways than one. "And correctly placed."
+
+Some things are worth having so much that you'll trade everything else to secure them. The art is knowing which things those are.
+
+---
 
 ---
 

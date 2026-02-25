@@ -12,25 +12,67 @@ Frostpeak had one rule for evenings like this: cocoa first, courage second, and 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Halfpipe Hollow for the winter challenge of the day: **halfpipe dig race**.
+They were digging out the old halfpipe at Halfpipe Hollow — the deep maintenance dig that happened every three years, clearing the packed layers of ice that built up in the walls — when **Trey Trout** found the box.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+Trey was a brook trout who had come to Frostpeak Valley from somewhere colder and smaller, with iridescent scales that caught the light and a talent for noticing things others missed. He'd volunteered for the dig crew because he liked the physical work and because he was curious about the halfpipe's structure, which was older than most creatures in the valley.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+The box was buried in the right wall, about four feet down. Small, wooden, waterproofed with pine tar. He called Piper Paddlefoot over — she was digging nearby — and they pulled it out together.
 
-That was when the old story came to mind: **Treasure in the Field — Matthew 13:44**.
+Inside: a rolled-up map, ink preserved in the cold, showing Halfpipe Hollow and the surrounding area in detail. And in the upper corner of the map, a notation that made Trey go very still.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+**Piper Paddlefoot** leaned over his shoulder. "What does it say?"
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"It says," said Trey carefully, "that there's a natural spring directly beneath the northwest slope of this hollow. Which, if it's still active, would mean—"
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **True treasure**.
+"Warm water," said Piper. "In the ground. Under the snow."
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"Which would explain why the northwest section of the halfpipe always has better snow consistency even in hard cold. Why the wall there holds shape better."
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"Better pipe," said Piper. "For twenty meters in each direction from that wall."
 
-No one promised that part.
+They looked at each other.
+
+"This map is from the original hollow survey," said Trey. "Before the current halfpipe was built. The survey found the spring. But the halfpipe was built centered on the hollow, not on the spring — probably because nobody from the survey was around anymore to explain why the northwest side was better."
+
+"So the best halfpipe surface in this valley has been right there for decades," said Piper, "and nobody knew why?"
+
+"Somebody knew," said Trey. "They put it in a box."
+
+---
+
+**Piper** wanted to announce it immediately. Put up a sign. Share the news with the committee.
+
+Trey held the map and thought about it for a while.
+
+"If we announce it," he said, "the committee will use it for the competition pipe — the main event pipe. Which would be great. But they'll also extend the high-use area into the northwest section, and the spring area gets damaged from heavy compaction."
+
+"So we protect the area?"
+
+"We could. But that means limiting use — restricting access to the best part of the hollow to preserve what makes it best." He looked at the map. "Or we find a way to build the permanent competition pipe *centered* on the spring like the survey originally recommended. Which means rebuilding, not just adjusting."
+
+"That costs money."
+
+"Yes."
+
+"And time."
+
+"Yes."
+
+Piper looked at the box, the map, the notation in the corner. She thought about all the seasons the northwest wall had been quietly better without anyone knowing why.
+
+"The true treasure," said Trey, "isn't the spring. It's knowing what you're actually standing on."
+
+"We rebuild," said Piper.
+
+"It's going to take three seasons to fundraise and plan."
+
+"Then it takes three seasons." She was already thinking about who to talk to — the committee, the maintenance crew, the valley fund. "This is worth doing right."
+
+They put the map back in its box — carefully, reverently, because things that have been waiting patiently in the cold deserve to be treated well — and they carried it out of the dig and started making a different kind of plan. Not the easy one. The true one.
+
+The kind of treasure that matters most is usually underneath everything else you thought was the point.
+
+---
 
 ---
 

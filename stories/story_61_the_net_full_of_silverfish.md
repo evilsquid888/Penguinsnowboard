@@ -12,25 +12,99 @@ If moonbeams had mittens, this would be the night they came out to clap for the 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Silverfish Cove for the winter challenge of the day: **ice-fishing sprint**.
+**Pete Penguin** had been ice fishing at Silverfish Cove since before dawn, and he had caught nothing.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+This was not, on its own, unusual — ice fishing required patience and the Silverfish Cove had lean days. But Pete had been here yesterday too, and caught nothing. And the day before, and caught almost nothing — a single small silverfish that barely counted. He had been fishing the same holes in the same spots with the same equipment he'd used for four successful seasons, and for three days in a row the fish were simply not there.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+He pulled his line up and drilled another hole and lowered his line and waited.
 
-That was when the old story came to mind: **Calling the First Disciples — Luke 5**.
+Nothing.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+He was tired. His flippers were cold in the specific way that happens after hours on ice. His back was sore. He had eaten his packed lunch already and it was only mid-afternoon. He was thinking about packing up and going home and whether this meant the silverfish had migrated early and whether that meant the whole coming season would be—
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"How's it going?" said **Bjorn Bigpaws**, appearing at the cove in a large orange jacket with a thermos.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Calling and trust**.
+"Empty," said Pete. "Nothing. All morning."
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+Bjorn sat down on a camp stool he'd brought and looked out across the cove. He had, unlike Pete, not been fishing all morning — he had been helping with an equipment delivery and had come by on his way home because he passed Silverfish Cove and had noticed Pete's tent earlier.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"You've been fishing the south end," said Bjorn.
 
-No one promised that part.
+"I always fish the south end. That's where the silverfish are."
+
+"They might have moved," said Bjorn. "After the cold snap last week, the temperature stratification under the ice changes. The deep channel on the north side — I went out there in years past when the fish went quiet, and there was usually a good concentration further in."
+
+Pete looked at the north side of the cove. It was further than he usually went — needed a longer ski out and a longer drill hole through thicker ice.
+
+"I've been fishing here all day," said Pete. "I'm tired."
+
+"I know," said Bjorn. "Try the north side."
+
+"Bjorn—"
+
+"Just once. If it's empty, I'll carry your equipment back and you can be annoyed at me over cocoa."
+
+Pete looked at his empty hole. He looked at the north side of the cove, where the deep channel ran.
+
+He stood up.
+
+"Fine," he said. "But if I drill through three feet of ice for nothing, you're buying the cocoa."
+
+"Deal," said Bjorn.
+
+---
+
+The north side ice was indeed thicker — two and a half feet, which meant a full twenty minutes of drilling that Pete did grumbling, steam coming up from the work, Bjorn handing him the auger when his arms got tired.
+
+When the hole finally broke through, Pete lowered his line into the dark water.
+
+The line went taut almost immediately.
+
+Not just taut — *pulling*. Something heavy below, and then more somethings, the line jerking in a way that meant more than one fish. Pete's eyes went wide. He started pulling.
+
+The silverfish came up in a glittering cascade — not one, not three, but so many that Pete's net was straining by the time he got it up through the hole, a great silvery mass of fish catching the afternoon light, more than he'd caught in any single day in four seasons.
+
+He stared at the net.
+
+He stared at Bjorn.
+
+"How did you know?" he said.
+
+Bjorn shrugged. "I didn't know. I thought it was worth trying."
+
+"There are — there are *so many*."
+
+"There are a lot of fish," Bjorn agreed, inspecting the net with satisfaction.
+
+Pete sat back on the ice. The net of silverfish was genuinely extraordinary. His hands were shaking slightly — not from cold, from the simple shock of abundance when you'd spent all day expecting nothing.
+
+"Come on," said Bjorn, already pulling out the second net. "Let's get them all. The light won't hold long."
+
+They worked together as the afternoon went golden, Pete pulling and Bjorn managing the haul, and by the time the sun touched the ridge they had more silverfish than Pete could carry alone and Bjorn's thermos of cocoa was very welcome indeed.
+
+"I almost went home," said Pete, holding his mug.
+
+"I know. You were going to go home and tell yourself the fish were gone."
+
+"They *were* gone. From where I was looking."
+
+"Right," said Bjorn. "That's the thing about trying somewhere new." He handed Pete a fish cracker from his jacket pocket. "You trust the call and then you see what's there."
+
+Pete looked at the full nets, the extraordinary abundance sitting on the ice in the last light of the afternoon.
+
+"I would have gone home empty," he said.
+
+"You didn't," said Bjorn.
+
+Pete ate his fish cracker. He thought about the deep channel, the thick ice, the twenty minutes of drilling when he was already tired and ready to quit. He thought about saying *fine* when he mostly meant *I don't believe you but I'll try*.
+
+"Next time," said Pete, "I'll trust faster."
+
+"Next time," said Bjorn, "I'll show you the channel from the start."
+
+They loaded the sleds and skied back to the valley as the first stars appeared, Pete's sled heavy and well-stocked and himself feeling something he hadn't felt all day: the particular warmth of being genuinely glad he'd stayed.
+
+---
 
 ---
 
