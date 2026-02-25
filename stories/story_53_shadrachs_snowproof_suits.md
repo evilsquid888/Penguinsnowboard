@@ -134,11 +134,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > Shadrach's Snowproof Suits at Heat Dome Halfpipe, featuring Shai Sheep in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for heated halfpipe run in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Shai Sheep, Meshy Marmot, and Abby Arctic-Hare standing firm at the competition entry table as Gorvath the ibex demands they use the mandatory Speed Compound Wax; Heat Dome Halfpipe gleaming behind them, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Fiery Furnace — Daniel 3; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Finnegan Flipsworth stepping out of line — his board already freshly coated with the paid-for Speed Compound — to stand with Shai, Meshy, and Abby; Gorvath spluttering, other competitors watching with impressed and uncertain expressions, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -147,11 +147,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Heat Dome Halfpipe as characters gather for heated halfpipe run; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to Heat Dome Halfpipe where the competition entry table is set up and Gorvath the ibex presides over the mandatory Speed Compound Wax requirement; Shai Sheep, Meshy Marmot, and Abby Arctic-Hare approach the table with their own wax; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Fiery Furnace — Daniel 3, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Shai's team refuses the unfair mandatory wax and is disqualified; Finnegan steps out of line despite having already paid for the Speed Compound; Nora arrives and methodically exposes the conflict-of-interest in the rule language; the team is reinstated, rides their pine-tar wax beautifully, and Finnegan shouts "BECAUSE WE ARE GOOD AT FRIENDSHIP" at the mountains.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

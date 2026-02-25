@@ -12,25 +12,53 @@ Tonight's forecast: 30% snowfall, 70% giggles, and a 100% chance somebody forget
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Calvary Hill for the winter challenge of the day: **quiet memorial ski**.
+There is a run in Frostpeak Valley called the Calvary Hill descent, and every year on the last Saturday before the big thaw, the valley holds a quiet ski.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+No competition. No racing. No banners. Just a slow, careful descent of the hill together, in the late afternoon, when the light comes in low and gold and everything is very still. At the bottom, there are lanterns lit. At the bottom, there is cocoa, already warm. At the bottom, there is a pause — a minute, maybe two — when the whole valley stands together in silence before the celebration of spring begins.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+**Cal Caribou** had started it.
 
-That was when the old story came to mind: **Crucifixion — Luke 23**.
+This was six winters ago now. Not everyone in Frostpeak Valley knew the full story; some had arrived since, some were young. But **Cleo Coldwater** knew, because she had been there, and she had written it down.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+---
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+Six winters ago, the valley's winter season had ended badly.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Self-giving love**.
+Not a storm — something harder than that. A failure of the community's warming program for the long-cold months, which meant three families in the north settlement had gone without enough fuel through the worst weeks. They had survived, but it had been close, and when spring came there was a heaviness in the valley that did not lift easily.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+Cal Caribou had been head of the fuel distribution committee.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+He had not failed intentionally. He had made a calculation error — a simple one, the kind that any creature makes — and had not caught it in time, and three families had paid the price of that uncaught error. He had stood before the valley and said this plainly. He had not explained it away or softened it. He had said: *I made a mistake. I am sorry. I should have caught it. I didn't.*
 
-No one promised that part.
+He had then spent the remaining weeks of that season making it right: redistributing from his own supply, coordinating with the valley fund, working seventeen-hour days through the worst of the cold to ensure no family went without again.
+
+It cost him the season's competition. It cost him the chairmanship, which he resigned. It cost him some friendships that couldn't bear the weight of what had happened.
+
+What it gave to others was survival, and safety, and the knowledge that someone had taken full account of what they owed.
+
+---
+
+**Cleo Coldwater** had sketched him through that season. Not the dramatic moments — not the public admission, not the resignation. The quiet ones. Cal in the fuel yard at five in the morning. Cal walking the north settlement path for the fourth time that week to check the deliveries himself. Cal sitting alone on the bench outside the Warming Hut at the end of a long day, looking at the mountain.
+
+She had not intended to show the sketches to anyone.
+
+But at the end of that spring, when Cal had suggested the quiet hill descent as a way to mark what the season had cost and what had been found through it — the valley's capacity to hold each other through hard things — she had given the sketches to the community archive, because she thought they should exist somewhere. A record of what self-giving love actually looks like from the outside. Not grand. Not easy. Just present, and continuing, and costing something real.
+
+---
+
+The quiet ski on Calvary Hill happened every year now.
+
+It was slow and unhurried. You could cry if you needed to, and sometimes creatures did. You could be glad to be there, and most creatures were. At the bottom, the lanterns were always already lit by the time the last skier arrived, and Barnaby always had the cocoa ready, and there was always a minute of silence that felt — even to creatures who hadn't been there six winters ago — like standing in the presence of something worth honoring.
+
+Cal himself always went last. Unhurried, careful, all the way down.
+
+"Why last?" Cleo had asked him once.
+
+"To make sure everyone else got down safely," he said.
+
+She wrote that down too.
+
+---
 
 ---
 

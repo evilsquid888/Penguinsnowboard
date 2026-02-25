@@ -120,11 +120,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > Matty's Tax-Booth Turnaround at Checkpoint Curve, featuring Matty Mink in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for speed skating in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Matty Mink alone in his checkpoint booth at Checkpoint Curve, seven years of strict exactitude on his face, watching skiers pass without a single friendly word exchanged; Nora Snowmane approaching the window with genuine curiosity, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Calling Matthew — Matthew 9; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Matty Mink skiing the east face for the first time in seven years — rusty, falling twice on the steep section, then finding the old weight-shift and carving properly with the whole valley spread below him; wide mountain, cold air, something unlocked, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -133,11 +133,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Checkpoint Curve as characters gather for speed skating; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to the checkpoint booth at Checkpoint Curve where Matty Mink sits alone — seven years of strict exactitude, creatures rushing past without a word — until Nora Snowmane stops and genuinely asks how he is; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Calling Matthew — Matthew 9, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Nora's simple question unlocks Matty's buried story: he used to ski, the booth took over, seven years passed; Nora points out Tuesday is free and the east face has excellent conditions; Matty skis it, rusty and falling and then carving properly with the valley spread wide below — something shifts, and he returns to the booth a little warmer, a little more generous with what he knows.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

@@ -144,11 +144,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > Martha, Mia, and the Cocoa Kettle at Cocoa Cottage, featuring Martha Marmot in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for kitchen biathlon in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Martha Marmot fussing alone in the Cocoa Cottage kitchen over the good biscuit plate and perfectly warmed cocoa, while Mia Mink and guest Willa Wobble sit laughing on floor cushions in the next room, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Mary and Martha — Luke 10; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Martha standing in the kitchen doorway with the almost-rearranged biscuit plate, realizing she is arguing for the right to stay stressed while Willa gently says "I came to see you, not the biscuits" — cozy cottage interior, warm lantern light, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -157,11 +157,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Cocoa Cottage as characters gather for kitchen biathlon; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to Cocoa Cottage where Martha Marmot fusses alone in the kitchen with the good biscuit plate while Mia and Willa's laughter drifts in from the floor cushions; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Mary and Martha — Luke 10, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Martha stands in the kitchen doorway with the almost-rearranged biscuit plate, arguing (to herself) for the right to stay stressed, until Willa says gently "I came to see you, not the biscuits" and "the kettle has a whistle"; Martha sits down, Mia pours the cocoa with approximately sixty percent of Martha's precision, and the afternoon becomes what it was supposed to be: warm, unhurried, present.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

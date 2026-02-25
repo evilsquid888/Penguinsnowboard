@@ -8,29 +8,109 @@
 
 ## Opening Wink
 
-Frostpeak had one rule for evenings like this: cocoa first, courage second, and snacks always nearby.
+*Revision Pass 3 Spark:* Nibbles and Splash were the most dramatic delivery service in Frostpeak Valley, and they were fully aware of this.
+
+Eli Elk had been alone on Raven Ridge for six days, and nobody was supposed to know where he was, and somehow the ravens knew anyway. The ravens always know.
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Raven Ridge for the winter challenge of the day: **backcountry ski camp**.
+**Eli Elk** had gone to Raven Ridge to be alone.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+Not in the sad way — just in the necessary way. He was a large, quiet elk who needed space between himself and the world sometimes, the way a fire needs air. He had been going to Raven Ridge in the deep-cold weeks every winter since he'd come to Frostpeak Valley: setting up his small camp by the frozen stream, skiing the empty backcountry trails, reading his books by lamplight. No company, no conversation, no obligations.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+This year, though, the deep cold had arrived before Eli had finished his preparations, and he'd set off with a lighter pack than intended. By day three, his food supply was significantly lower than it should be. By day five, he was eating very small portions and trying not to think about it. By day six, he stood in his camp in the bright cold morning and looked at his remaining supplies and accepted that he had a problem.
 
-That was when the old story came to mind: **Elijah Fed by Ravens — 1 Kings 17**.
+He couldn't turn back early — the trail was iced over in a way that would be dangerous to ski alone without his full energy. He couldn't make it to the valley on reduced rations without risking something. And nobody knew exactly where he was, because Eli always went alone and nobody thought to track his route.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+He made his small breakfast with great care and sat on his camp stool and looked at the mountain around him.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+The ravens came on the afternoon of the sixth day.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Provision in lonely seasons**.
+There were two of them — large ones, glossy black, with the particular confident quality of ravens who have been places. They landed on a pine branch about ten feet from Eli's camp and looked at him.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"Hello," said Eli.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+The ravens looked at each other.
 
-No one promised that part.
+Then — in a scene Eli would describe to every creature in Frostpeak Valley for years afterward with declining hopes of being believed — they flew away, came back twenty minutes later, and *dropped things*.
+
+The first raven dropped a wrapped parcel of dried fish. It landed in the snow two feet from Eli's camp stove with a heavy, purposeful thump.
+
+The second raven dropped a small package of pressed grain cakes wrapped in bark cloth.
+
+Then they flew away.
+
+Eli stared at the snow.
+
+He looked up at the sky.
+
+He looked at the parcel.
+
+He opened it. The fish was dried and well-preserved, enough for three or four meals. The grain cakes were dense and sweet and still slightly warm.
+
+"How," said Eli to the empty sky.
+
+The sky did not elaborate.
+
+He ate. He felt better. He went to bed full and warm.
+
+---
+
+The next morning they came again.
+
+The same two ravens, same confident bearing, same purposeful drops: a paper cone of dried berries and something in a small clay pot with a fitted lid that turned out to be soup — *actual soup*, still warm, which should have been impossible but was absolutely real. He ate it sitting in the snow with his back against a pine tree and it tasted exactly like the soup Barnaby Beaksworth made at the Warming Hut.
+
+Which is how it began to make sense.
+
+When Eli returned to the valley four days later, well-fed and genuinely puzzled, he found **Nibbles and Splash** — the seal siblings who were known throughout Frostpeak for their slapstick grace and occasional unexpected wisdom — sitting at the Warming Hut in an attitude of exaggerated innocence.
+
+"Nibbles," said Eli. "Splash. Do you know anything about ravens delivering food to Raven Ridge?"
+
+Nibbles looked at the ceiling.
+
+Splash studied her flippers with great interest.
+
+"The ravens on Raven Ridge sometimes carry things for us," Nibbles said carefully. "When we ask them nicely. They are very cooperative ravens."
+
+"You trained the ravens."
+
+"We have a *relationship* with the ravens."
+
+"How did you know I needed food?"
+
+"We know everyone's usual routes," said Splash, still studying her flippers. "When your route hadn't changed after day five and we know you pack light, we thought you might appreciate some company in a non-present form."
+
+Eli stood in the doorway and looked at the two seals.
+
+"The soup tasted like Barnaby's soup," he said.
+
+"Barnaby made the soup," said Nibbles. "He also did not ask too many questions. He just made the soup."
+
+"And the ravens—"
+
+"Love dried fish," said Nibbles. "We have an understanding."
+
+Eli sat down. He was not entirely sure what to feel, which was unusual for an elk who always knew what to feel.
+
+"You helped me," he said, "without asking, without announcement, from a distance, using ravens as intermediaries."
+
+"Yes," said Splash.
+
+"Why?"
+
+The two seals looked at each other with the expression they always had when the answer seemed obvious.
+
+"Because you were alone and we knew you needed something," said Nibbles, "and sometimes provision comes from exactly the direction you weren't looking."
+
+Eli was quiet for a long moment.
+
+"Thank you," he said. And he meant it in the way you mean something when it has landed somewhere very deep.
+
+"Next time," said Splash, "you could pack heavier."
+
+"I know," said Eli. "I also know the ravens now. So."
+
+He smiled. Nibbles and Splash clapped their flippers — once, together, like a tiny applause — and Barnaby appeared with three mugs of soup and not a single question, which was exactly right.
 
 ---
 

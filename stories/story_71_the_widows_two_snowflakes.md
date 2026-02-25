@@ -130,11 +130,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > The Widow's Two Snowflakes at Giving Gazebo, featuring Wida Wren in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for charity skate in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> The Giving Gazebo at the top of the main slope during the Community Fund collection; Willa Wobble watching from the path as tiny Wida Wren approaches with both wings cupped carefully in front of her, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Widow's Offering — Mark 12; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Close view inside the collection box showing Wida Wren's two tiny silver coins nearly lost against the wooden bottom, alongside the larger contributions from others; Willa looking thoughtful at the Warming Hut as the full weight of Wida's gift becomes clear, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -143,11 +143,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Giving Gazebo as characters gather for charity skate; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to the Giving Gazebo at the top of the main slope during Community Fund collection; Willa Wobble watching from the path as Wida Wren — tiny, careful, wings cupped — approaches and sets something in the collection box; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Widow's Offering — Mark 12, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Willa looks into the collection box and sees two tiny silver coins nearly lost against the wooden bottom; at the Warming Hut the group quietly reckons with what that gift truly cost; Barnaby appears with his soup pot and the wordless plan takes shape — on Thursday, Wida's favorite mushroom-barley soup waits with a note that says only "with thanks, from the valley"; small gifts that give everything matter most.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

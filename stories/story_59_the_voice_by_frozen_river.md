@@ -132,11 +132,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > The Voice by Frozen River at River Reeds, featuring Juno Jay in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for riverbank plunges in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Juno Jay standing on the frozen riverbank at River Reeds in his patchwork scarf, calling out morning wisdom to passersby; Piper Paddlefoot pausing on the path with a heavy expression, snow unmarked on the far bank, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by John the Baptist — Matthew 3; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Piper Paddlefoot wading into the cold river shallows up to her ankles, declaring dramatically "I AM READY TO START AGAIN," then scrambling out very quickly; Juno Jay watching from his post with calm amusement, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -145,11 +145,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to River Reeds as characters gather for riverbank plunges; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to the River Reeds where Juno Jay stands on the frozen bank in his patchwork scarf, calling out morning wisdom as Piper Paddlefoot walks past carrying something heavy she hasn't put down in weeks; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from John the Baptist — Matthew 3, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Piper finally stops and talks to Juno across five mornings of gentle wisdom about fresh starts; she wades dramatically into the freezing shallows, shouts her readiness, scrambles back out, and goes to find her friend at the Warming Hut to say the three words — I'm sorry — in the right order; unmarked snow on the far bank, fresh still.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

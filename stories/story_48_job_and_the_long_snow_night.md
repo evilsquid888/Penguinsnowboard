@@ -150,11 +150,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > Job and the Long Snow Night at Stillwind Camp, featuring Jobi Yak in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for slow snowshoe walk in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Jobi Yak sitting alone in his damp cabin surrounded by broken skis, a lost helmet, a wrist brace, and the pieces of his shattered cocoa mug, weight of a very hard winter on his face, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Job — Job 1–42; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Nora Snowmane quietly sitting beside Jobi on the bench at Stillwind Camp, frozen lake before them, handing him a thermos of plain broth — no explanations, just steady presence; soft winter light, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -163,11 +163,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Stillwind Camp as characters gather for slow snowshoe walk; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to Stillwind Camp where Jobi Yak sits alone on a bench overlooking the frozen lake, wrist in a brace, the weight of a long difficult winter visible on his face; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Job — Job 1–42, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Nora Snowmane arrives at the bench without a word, sits beside Jobi, and hands him a thermos of plain broth — no explanations, no fixes, just steady presence; time passes, the lake is still, a snow hare crosses the far bank; hope held quietly until things slowly get better, Cleo's painted cocoa mug the final warm close.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

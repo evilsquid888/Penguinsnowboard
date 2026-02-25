@@ -8,29 +8,99 @@
 
 ## Opening Wink
 
-If moonbeams had mittens, this would be the night they came out to clap for the valley.
+*Revision Pass 3 Spark:* The moment Ari played the first note, Magnus's eyebrow slowly un-furrowed for the first time in three weeks. The whole valley exhaled.
+
+There is no storm big enough that the right music cannot make a small, warm space inside it. Ari Arctic-Fox had never tried to calm a polar bear before. Tonight would be the most important concert of his life, and the audience was one grumpy bear sitting in the dark.
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Echo Lake for the winter challenge of the day: **ice harp performance**.
+Everyone in Frostpeak Valley knew that **Magnus Meltsworth** was having a bad season.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+Not bad-luck bad. Bad-*mood* bad. The kind of bad season that starts with one frustrating thing and then, because you're tired and grumpy, every subsequent small thing feels like a personal offense from the universe. Magnus had been carrying this mood for three weeks now, and it had grown heavy, and it showed: he arrived at the Warming Hut early and left before anyone talked to him. He skied alone. His grumbling had gone from the cheerful background grumble everyone loved into something quieter and sharper, which was somehow worse.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Nora had tried. Bjorn had tried. Barnaby had tried twice and offered fish crackers both times and gotten the specific look that meant *I appreciate you and please leave me alone.*
 
-That was when the old story came to mind: **David Soothes Saul — 1 Samuel 16:23**.
+Everyone was a little worried, and nobody knew what to do.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+**Ari Arctic-Fox** was the least likely solution.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+He was young — barely out of his first winter in the valley — and he played a small harp he'd built himself from bent willow branches and thin silver strings. He played it on the shore of Echo Lake in the evenings, mostly for himself, because the lake's ice was a perfect resonance surface and the sound carried beautifully across the water and up into the dark pines. He had never performed for anyone. He had never intended to.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Gentle music calms**.
+Willa found him one evening as he was packing up after his practice session.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"I want you to play for Magnus," she said.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+Ari looked at her. "Magnus Meltsworth? The large polar bear who is currently extremely—"
 
-No one promised that part.
+"Yes."
+
+"I've never played for anyone who wasn't me."
+
+"Tonight would be a good time to start."
+
+---
+
+Magnus was sitting at the far end of Echo Lake when Ari found him, which took a while because the far end of Echo Lake was rather far. He was sitting on an ice ridge with his skis off and his thermos between his paws and the particular posture of a creature who has been alone with his thoughts for too long.
+
+Ari Arctic-Fox sat down on the ice about twenty feet away, got out his willow harp, and without preamble, without asking, without introducing himself, he began to play.
+
+Magnus turned around. His eyebrows were deep furrowed — the full Magnus frown. "What are you—"
+
+Ari played.
+
+The music drifted out across the ice. It was quiet music — not dramatic, not loud, not trying to fix anything. Just notes, moving slowly, the way light moves when it comes through pines in the morning. A simple melody that repeated and changed slightly and repeated again, building layers of sound on the ice surface.
+
+Echo Lake did what it always did: it reflected.
+
+The music bounced off the ice and returned slightly changed — warmer, fuller, two sounds becoming four, the harp playing with itself in the dark. The pines on the far shore caught the vibrations and held them. The whole lake became a resonance box, and Ari's small willow harp filled it.
+
+Magnus turned back to face the lake.
+
+He didn't say anything.
+
+Ari played.
+
+A minute passed. Two. The furrowed brow slowly, slowly changed. Not fixed — not gone — but softened. The specific held-tight quality of someone carrying something heavy loosened very slightly, the way a fist loosens in warm water.
+
+"What are you playing?" Magnus said, eventually. His voice was different. Quieter.
+
+"Nothing with a name," said Ari. "I just play what I hear."
+
+"You hear this?"
+
+"Not this exactly. I play and the lake changes it." Ari kept his eyes on the strings. "You're part of it now, too. The way you're sitting changes the air. The weight of whatever you're carrying changes the resonance." He paused. "Music is better when it has something real to move through."
+
+Magnus was quiet for a long time.
+
+The harp played. The lake reflected. The pines held.
+
+"I've been angry," Magnus said finally. "About something that isn't going to change, no matter how angry I am."
+
+"I know," said Ari, though he didn't know the specifics. He just knew the sound of something old and heavy.
+
+"It feels like it should feel less than it does by now."
+
+"Grief doesn't run on a schedule," said Ari. "Neither does missing things."
+
+Magnus looked at the far shore. He exhaled — a long, slow breath, the kind that's been held in for too long. The music filled the space it left.
+
+They stayed there for a long time — long enough for the stars to shift, long enough for Ari's fingers to go slightly cold and keep playing anyway. Eventually the music slowed and found a gentle place to end, a single note that the lake held for a moment longer than seemed possible, then let go.
+
+Silence. The good kind. The empty-handed kind.
+
+"Thank you," Magnus said. It came out gruff, the way his voice went when it was carrying feeling.
+
+"The lake helped," said Ari.
+
+"So did you."
+
+Ari packed his harp carefully. "I'll come back tomorrow, if you'd like."
+
+Magnus was quiet for a moment. "All right," he said. "I'll be here."
+
+He didn't say *please*, but it was in his voice, and Ari heard it.
+
+When they walked back to the Warming Hut together, the sky had gone deep indigo and the northern lights were just beginning, and Magnus's footsteps were still heavy but slightly less so, and the something he'd been carrying had not disappeared but had become, briefly, music — and music, unlike silence, can be shared.
 
 ---
 

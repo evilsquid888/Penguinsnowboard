@@ -12,25 +12,79 @@ Some nights the wind whistles; tonight it hummed like it knew a secret worth sha
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Rink Gate for the winter challenge of the day: **late gate duty**.
+**Pete Penguin** made a mistake on a Tuesday, and he spent the next three days wishing he could unhappen it.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+The mistake was this: he had been standing at the Rink Gate in the middle of a crowd — a large, chaotic crowd of creatures pushing through after a big event — and **Petra Puffin** had come through needing gate support. Petra was Pete's team captain, the one who had taken a chance on him when he'd first arrived in Frostpeak Valley, the one who had put him on the competition roster and trained with him twice a week through the worst of the cold months.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+The crowd had been heated. The event had gone badly for several groups and tempers were short. A large snow leopard had looked at Pete and said: "Aren't you on Petra Puffin's team?"
 
-That was when the old story came to mind: **Peter Denies Jesus — Luke 22**.
+And Pete — surprised, surrounded by noise, tired, uncomfortable, wanting the whole scene to be over — had said:
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+"No."
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+He didn't know why he said it. The word was out before the thought fully formed. It was easier, in that moment, to not be associated with Petra and the controversy and the crowd's frustration. Just: *no, not me, I'm separate from this.*
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Honesty after mistakes**.
+Petra was five feet away. She didn't look over. But Pete saw, in his peripheral vision, that she had heard.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+He said nothing else. He let the crowd move past. He went home.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+---
 
-No one promised that part.
+At three in the morning, **a rooster crowed somewhere on the valley's eastern farms** — a clear, carrying sound through the quiet cold.
+
+Pete woke up. He lay in the dark and thought about what he'd said.
+
+*No.*
+
+One small word. The wrong word. The coward word.
+
+He hadn't been in danger. He hadn't been protecting anyone. He'd just been uncomfortable, and he'd taken the easy exit, and the price of that exit was Petra, five feet away, hearing herself erased.
+
+He got up and made tea. He sat with it in the dark and felt the full weight of the thing he'd done.
+
+He could tell himself reasons. He could explain it to himself kindly. But the reasons didn't make the word different. *No* was still the word he'd said.
+
+---
+
+It took him two days to go see Petra.
+
+Not because he was deciding whether to — he knew he needed to. But because he had to find the right version of himself to do it: not the defensive one, not the excuse-making one. The honest one.
+
+She was at the Rink Gate when he found her, doing the morning equipment check. She didn't look up when he arrived.
+
+"Petra," he said.
+
+She kept her clipboard.
+
+"I said no," he said. "When they asked if I was on your team. I said no and you were right there and I — that was wrong. I was wrong. I'm sorry."
+
+A pause.
+
+She looked up.
+
+"Why?" she said. "Not accusatory. Actually asking."
+
+Pete thought about it. "Because it was easier in that moment. Because I was tired and the crowd was angry and I didn't want to be part of it. And I know that's not a good reason."
+
+Petra looked at him for a long moment.
+
+"I know," she said. "I heard you."
+
+"I know you heard me."
+
+Another pause. The morning wind moved through the gate.
+
+"You came back," said Petra.
+
+"Yes."
+
+"That's something," she said. She made a mark on her clipboard. "The gate needs resetting on the south side. Can you help me?"
+
+It wasn't forgiveness announced — it was forgiveness in action, which is the better kind. They worked the morning check together, side by side, and Pete said nothing more about Tuesday because nothing more needed saying, and Petra let the work speak for what words couldn't carry.
+
+The rooster crows and you hear it and you know what you did. The question is what you do next.
+
+---
 
 ---
 

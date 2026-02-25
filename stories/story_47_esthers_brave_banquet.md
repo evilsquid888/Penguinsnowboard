@@ -170,11 +170,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > Esther's Brave Banquet at Winter Palace, featuring Esti Stoat in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for banquet skate in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Esti Stoat in her amber scarf standing outside the Winter Palace Games Committee meeting room door, hesitating, Aurora Frostholm nearby offering quiet encouragement, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Esther's Courage — Esther 4–7; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Small, nervous Esti Stoat addressing seven large senior animals at the Games Committee table, speaking up for the Nestling Flock's right to compete despite the unfair Residency Rule; close-up on her steady gaze, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -183,11 +183,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Winter Palace as characters gather for banquet skate; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to the Winter Palace equipment room where Esti Stoat sits with her forehead on the rental ledger, amber scarf nearly to her knees, as Aurora Frostholm arrives to encourage her; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Esther's Courage — Esther 4–7, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Tiny Esti Stoat walks through the Games Committee meeting room door — almost turns back twice — then faces seven large senior animals and speaks up for the Nestling Flock's right to compete, voice steady despite shaking knees; the committee listens, the rule changes, Pip Starling's skates are ready; courage for others wins the day.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

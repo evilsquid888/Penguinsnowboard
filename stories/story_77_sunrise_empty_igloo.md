@@ -12,25 +12,63 @@ If moonbeams had mittens, this would be the night they came out to clap for the 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Garden Igloo for the winter challenge of the day: **dawn sprint ski**.
+**Risa Rabbit** ran to the Garden Igloo before the sun was fully up.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+She had been there three days before, when the igloo had been occupied — when it had been warm inside and full of the presence of the creature who had been her teacher and her friend. Three days ago the valley had felt like a different place: heavy, and dark, and full of a grief she did not quite know how to carry.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+**Piper Paddlefoot** had run beside her, both of them hurrying through the early-morning blue, through the spruce grove and down the hill and around the curve of the path, because someone had said *come see, come see* in the particular voice of something important.
 
-That was when the old story came to mind: **Resurrection — John 20**.
+The igloo was empty.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Not abandoned-empty — not broken or disturbed. Just empty in the way a shell is empty: completely and purposefully, as if whatever had been inside had not left but had *departed*, which is different. The lamp was still burning. The sleeping blanket was folded.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+Risa stood in the doorway and looked at the folded blanket.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Hope returns**.
+She did not understand yet. She understood that he had been there, and that whatever had been wrong was no longer wrong in the way she'd thought it was, and that the grief she'd been carrying had a crack in it through which something entirely unexpected was beginning to come in.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"He's not here," said Piper.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"No," said Risa.
 
-No one promised that part.
+"Where—"
+
+"I don't know. But — Piper — look at the lamp. Look at the blanket."
+
+Piper looked. She understood, slowly, what Risa was understanding: that whoever had folded the blanket had folded it with care. That someone in a hurry doesn't fold a blanket. That a folded blanket is a message: *I was here, I am whole, I left in order, I am not gone in the way you feared.*
+
+---
+
+They went home. They did not know what to say, or to whom. They sat with the not-yet-knowing for a while, which is something humans and animals both have to do when they encounter something larger than their current understanding.
+
+And then — later that day, as the sun came fully up and the valley went about its ordinary morning work — there were sightings.
+
+Not dramatic ones. Just: Cleo, sketching at the lake, who said quietly that she had felt, while working, as if someone was looking over her shoulder in the warm way a good teacher stands behind you. Not a ghost, not a frightening thing — just *presence*, familiar and kind.
+
+And Bjorn, at the Warming Hut, who said he had been sitting alone at the corner table when the particular quality of the light shifted and he'd felt, very briefly but absolutely certainly, as if someone had sat down across from him and was glad he was there.
+
+And Pete Penguin, who had been carrying his shame from the Rink Gate mistake for days, who said that he had been standing at the water's edge at dawn and heard his name called — not loudly, just his name — in a voice he recognized, and had felt, through the shame, something that was the precise shape of forgiveness.
+
+---
+
+**Risa** went back to the Garden Igloo that evening and sat beside it in the snow for a while.
+
+The lamp inside was still burning. She had been back three times and it was always burning. She didn't think it would go out.
+
+She thought about the folded blanket. She thought about the crack in the grief and what was coming through it.
+
+"He came back," she said quietly to Piper, who was there beside her.
+
+"Yes," said Piper.
+
+"Not in the way I expected."
+
+"Hope never comes back the way you expect. It comes back in the way that fits the shape of the world as it actually is, not as you pictured it." Piper paused. "Which is better, usually. Even when it's surprising."
+
+The lamp burned on in the Garden Igloo. The stars came out one by one over the valley. The night was cold and completely full.
+
+Hope returns. It keeps its own timing, and it does not go out.
+
+---
 
 ---
 

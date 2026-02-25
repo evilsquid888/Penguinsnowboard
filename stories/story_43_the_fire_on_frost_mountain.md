@@ -188,11 +188,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > The Fire on Frost Mountain at Frost Mountain Bowl, featuring Kara Caribou in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for torch relay in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Roderick the Ram setting up his elaborate pinecone arrangement and proprietary jars at the Frost Mountain Bowl summit beacon, excited crowd gathered below, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Elijah on Mount Carmel — 1 Kings 18; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Roderick's theatrical flame bends in the draft and goes out with a polite pfft while a row of seals begins clapping earnestly; Kara Caribou watches calmly with her small birchwood firestarter in her jacket pocket, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -201,11 +201,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Frost Mountain Bowl as characters gather for torch relay; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to Frost Mountain Bowl where a crowd gathers around the unlit summit beacon as Roderick the Ram arrives with his wooden cart of proprietary jars and a brass horn; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Elijah on Mount Carmel — 1 Kings 18, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Roderick's elaborate pinecone arrangement and accelerant flame bends in the draft and gutters out to delighted seal applause; Kara Caribou steps forward, kneels quietly on the north side of the platform with her simple birchwood firestarter, and on the third strike lights the beacon clean and tall; truth outshines showmanship, aurora rising overhead.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

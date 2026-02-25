@@ -126,11 +126,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > The Writing on the Ice Wall at Ice Palace, featuring Bela Bear in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for gala skating in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> The Ice Palace Gala crammed with Bela Bear's trophies, banners, and portraits leaving no room for guests; the Nestling Flock clustered near the entrance with nowhere to sit, Beryl the narwhal's scarf twitching; cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Writing on the Wall — Daniel 5; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> Strange Old Valley Runic letters appearing on the far ice wall mid-gala while Bela freezes mid-skate; Bjorn Bigpaws pressing his nose to the ice to read the message about pride having limits, crowd gathered in hushed awe, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -139,11 +139,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Ice Palace as characters gather for gala skating; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to the Ice Palace Gala dome crammed with Bela Bear's trophies, seven chronological championship banners, and three removed guest tables — the Nestling Flock crowded near the entrance with nowhere to sit; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Writing on the Wall — Daniel 5, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Mid-gala, strange Old Valley Runic letters carve themselves into the far ice wall while Bela freezes mid-skate; Bjorn presses his nose to the ice to read the message that pride is a terrible landlord and the soup is getting cold; Bela's expression moves through pride to honesty, tables go back, four banners come down, the evening becomes what it was supposed to be.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.

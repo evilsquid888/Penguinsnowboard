@@ -116,11 +116,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 **Cover Illustration:**  
 > The Valley of Dancing Bones at Rattle Valley, featuring Zeke Finch in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for rhythm ski routine in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — Winter Challenge Begins:**
+> Zeke Finch and Cleo Coldwater planning the Rattle Valley restoration over morning cocoa at the Warming Hut, sketchbook open with the list of repairs needed for the abandoned canyon run, cinematic wide shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by Valley of Dry Bones — Ezekiel 37; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — The Wobbly Problem:**
+> The volunteer work party tackling the overgrown Rattle Valley access path — Finnegan's scarf caught in a drainage channel, and Beryl the narwhal wedged between two snow-laden pines while Willa Wobble guides her through the branches like an air traffic controller, medium shot.
 
 **Scene 3 — Cozy Victory Circle:**  
 > Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
@@ -129,11 +129,11 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Rattle Valley as characters gather for rhythm ski routine; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Establishing aerial of Frostpeak Valley at twilight, then push-in to the overgrown, marker-bare entrance of the forgotten Rattle Valley canyon run; Zeke Finch stands at the top looking down at what was once the finest run in the valley; whimsical orchestral music, cozy cinematic animation.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from Valley of Dry Bones — Ezekiel 37, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> The volunteer work party clears the abandoned Rattle Valley run — Finnegan's scarf tangled in the drainage channel, Beryl the narwhal guided through snow-laden pines by Willa's calm instructions — until the markers are back, the drainage fixed, and Zeke leads the whole laughing group down the restored canyon in a clean first run; the valley remembered, hope rewarded.
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.
