@@ -12,25 +12,87 @@ If moonbeams had mittens, this would be the night they came out to clap for the 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Heat Dome Halfpipe for the winter challenge of the day: **heated halfpipe run**.
+Heat Dome Halfpipe was, technically, an outdoor halfpipe — but it sat in a south-facing bowl that trapped warmth, and on clear winter days it got genuinely toasty, which made it the most popular practice spot in the valley for anyone who didn't want to ski in their full parka.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+The halfpipe was also, this particular season, at the center of a **controversy**.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+The competition organizers — a somewhat self-important committee led by an ibex named Gorvath — had announced a new requirement: all halfpipe competitors must use the new **Speed Compound Wax** on their boards and skis. The Speed Compound had been supplied exclusively by Gorvath's cousin's company, cost three times as much as regular wax, and gave a marginal speed advantage that the committee had decided was now mandatory for "competitive standardization."
 
-That was when the old story came to mind: **Fiery Furnace — Daniel 3**.
+Most riders grumbled and bought the Speed Compound Wax.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+**Shai Sheep** and his two friends — Meshy Marmot and Abby Arctic-Hare — did not.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+The three of them had been riding together since their first winter in the valley. They used the same hand-blended wax their coach had taught them: a mixture of beeswax and pine tar that was warmer on the board and better for control than speed in a pipe. They'd won their regional qualifier with it. They saw no reason to change.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Faithful friendship**.
+"You must use the official Speed Compound," Gorvath informed them at the entry table.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"We prefer our current wax," said Shai, politely.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"It's mandatory."
 
-No one promised that part.
+"It shouldn't be," said Shai, still politely. "Our wax is legal, it's our preference, and requiring a specific product from a specific supplier seems like a conflict of—"
+
+"Disqualified," said Gorvath, "unless you comply."
+
+Shai looked at Meshy. Meshy looked at Abby. Abby looked at the halfpipe.
+
+"No," said Shai.
+
+Gorvath's eyebrows went up. "No?"
+
+"Our wax is legal. Our performance is fair. We're not changing it."
+
+"Then you don't compete."
+
+"Then we don't compete," said Shai.
+
+They stepped away from the entry table. The other competitors — who had all grumbled but complied — watched with expressions ranging from impressed to uncomfortable.
+
+**Finnegan Flipsworth** had been waiting in line behind them. He looked at Gorvath. He looked at his own board, freshly coated with the mandatory Speed Compound. He looked at Shai, Meshy, and Abby.
+
+He stepped out of line.
+
+"I'm also not competing," said Finnegan.
+
+Everyone looked at him.
+
+"I already bought the wax," he clarified. "But it doesn't feel right to compete in a competition where they're excluded for having legal preferences. So I'm out too."
+
+Gorvath spluttered. "You PAID for the entry. You can't just—"
+
+"Turns out I can," said Finnegan, with the cheerful confidence of someone who had just made an important decision and was mildly surprised by his own certainty.
+
+He went and stood with Shai, Meshy, and Abby.
+
+Now they were four.
+
+---
+
+What happened next was that Nora Snowmane — who had heard about the situation from Cleo, who had been sketching nearby — arrived and had a very pointed conversation with Gorvath about conflict-of-interest policies and the actual language of the competition rules, which did not, on close reading, require a specific brand or supplier, only that wax meet certain performance standards.
+
+The Speed Compound, Gorvath was forced to acknowledge, was not actually listed as the only acceptable option. The rule was *performance standards*, not *brand compliance*.
+
+"Ah," said Gorvath, very quietly.
+
+Shai, Meshy, and Abby were reinstated. Finnegan was reinstated. The competition went forward. Shai's team rode beautifully, with the warm pine-tar wax they'd mixed themselves, and finished second overall — not because the wax was magic, but because they knew their board and their pipe and had spent the morning practicing instead of stressing about compliance.
+
+Afterward, the four of them sat at the base of the halfpipe with their feet on the packed snow and Barnaby's cocoa mugs in their hands.
+
+"You didn't have to step out," said Shai to Finnegan.
+
+Finnegan shrugged. "I know," he said. "That's kind of the point."
+
+"Was it scary?"
+
+Finnegan thought about it. "A little. But you were right and I knew you were right, and I didn't want to stand in line watching you be right while I was going the wrong direction." He slurped his cocoa. "Also, now we have a good story."
+
+"We always have a good story," said Shai.
+
+"BECAUSE WE ARE GOOD AT FRIENDSHIP," said Finnegan, loudly, to the mountains.
+
+The mountains echoed back something that sounded like agreement.
+
+---
 
 ---
 
