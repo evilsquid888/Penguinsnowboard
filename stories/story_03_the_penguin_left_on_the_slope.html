@@ -1,0 +1,202 @@
+<!doctype html>
+<html lang="en">
+<head>
+  <meta charset="utf-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1">
+  <title>Story 3: The Penguin Left on the Slope</title>
+  <style>
+    :root {
+      --night: #0d1b2a;
+      --sky: #274c77;
+      --frost: #a3cef1;
+      --snow: #f8fbff;
+      --pine: #2f5d50;
+      --amber: #f7b267;
+      --ink: #132033;
+    }
+
+    * { box-sizing: border-box; }
+
+    body {
+      margin: 0;
+      font-family: "Trebuchet MS", "Gill Sans", "Segoe UI", sans-serif;
+      color: var(--ink);
+      background:
+        radial-gradient(circle at 20% 0%, #3f72af 0, transparent 40%),
+        radial-gradient(circle at 90% 10%, #7fc8f8 0, transparent 35%),
+        linear-gradient(180deg, #0a2342 0%, #2c5a82 35%, #dff2ff 100%);
+      min-height: 100vh;
+      padding: 24px;
+    }
+
+    .page {
+      max-width: 980px;
+      margin: 0 auto;
+      background: rgba(248, 251, 255, 0.95);
+      border: 1px solid rgba(19, 32, 51, 0.2);
+      border-radius: 20px;
+      overflow: hidden;
+      box-shadow: 0 24px 60px rgba(10, 35, 66, 0.35);
+    }
+
+    header {
+      padding: 28px 24px;
+      background:
+        linear-gradient(145deg, rgba(247, 178, 103, 0.25), rgba(163, 206, 241, 0.4)),
+        linear-gradient(90deg, #eff8ff, #d9edff);
+      border-bottom: 1px solid rgba(19, 32, 51, 0.15);
+    }
+
+    h1 {
+      margin: 0;
+      font-size: clamp(1.7rem, 2.8vw, 2.5rem);
+      letter-spacing: 0.02em;
+    }
+
+    .meta {
+      margin-top: 10px;
+      font-size: 0.98rem;
+      color: #24415f;
+    }
+
+    main {
+      padding: 20px 24px 28px;
+      display: grid;
+      gap: 22px;
+    }
+
+    .card {
+      background: white;
+      border: 1px solid rgba(19, 32, 51, 0.12);
+      border-radius: 14px;
+      padding: 16px;
+    }
+
+    .story p {
+      margin: 0 0 12px;
+      line-height: 1.55;
+    }
+
+    .gallery {
+      display: grid;
+      gap: 16px;
+      grid-template-columns: repeat(auto-fit, minmax(220px, 1fr));
+    }
+
+    figure {
+      margin: 0;
+      background: #f2f8ff;
+      border: 1px solid #c9def2;
+      border-radius: 12px;
+      overflow: hidden;
+    }
+
+    picture, img {
+      display: block;
+      width: 100%;
+    }
+
+    img {
+      display: block;
+      height: 180px;
+      object-fit: cover;
+      background: linear-gradient(#93c5e6, #dff4ff);
+    }
+
+    figcaption {
+      padding: 10px;
+      font-size: 0.92rem;
+      line-height: 1.4;
+    }
+
+    video {
+      display: block;
+      width: 100%;
+      max-height: 420px;
+      border-radius: 12px;
+      border: 1px solid #c9def2;
+      background: #0f1f33;
+    }
+
+    footer {
+      padding: 18px 24px 24px;
+      font-size: 0.95rem;
+      color: #2c4c6b;
+    }
+
+    @media (max-width: 640px) {
+      body { padding: 12px; }
+      header, main, footer { padding-left: 14px; padding-right: 14px; }
+    }
+  </style>
+</head>
+<body>
+  <div class="page">
+    <header>
+      <h1>Story 3: The Penguin Left on the Slope</h1>
+      <div class="meta">Inspired by The Good Samaritan (Luke 10:25-37) • Theme: Kindness to strangers</div>
+    </header>
+
+    <main>
+      <section class="card story">
+        <p><strong>Snuggle in.</strong> This is a story about a penguin nobody stopped for, until someone did.</p>
+        <p>Pip, a small penguin from South Ridge, took a bad tumble on the Deep Powder Forest trail and landed in a cold snowdrift with a sore wing.</p>
+        <p>Two travelers passed by. Each noticed her. Each chose speed and schedule over kindness.</p>
+        <p>Then Barnaby Beaksworth came around the bend humming, saw Pip, and stopped immediately. No hesitation.</p>
+        <p>He helped her up, wrapped her in a blanket, shared cocoa and fish crackers, found her board, and walked her to Nora Snowmane's warm den.</p>
+        <p>When Pip whispered, "You didn't know me. You didn't have to stop," Barnaby answered, "Of course I stopped. You needed help."</p>
+        <p><strong>Cozy landing:</strong> Kindness is rarely flashy, but it always leaves warmer tracks.</p>
+      </section>
+
+      <section class="card">
+        <h2>Illustrated Scenes</h2>
+        <div class="gallery">
+          <figure>
+            <picture>
+              <source srcset="images/story_03/cover.jpg" type="image/jpeg">
+              <img src="images/story_03/cover.png" alt="Cover illustration with Barnaby helping Pip in deep snow.">
+            </picture>
+            <figcaption><strong>Cover:</strong> Barnaby reaches Pip in deep powder and offers a warm blanket.</figcaption>
+          </figure>
+
+          <figure>
+            <picture>
+              <source srcset="images/story_03/scene_1_animals_passed.jpg" type="image/jpeg">
+              <img src="images/story_03/scene_1_animals_passed.png" alt="Split scene of animals passing by Pip in the snow.">
+            </picture>
+            <figcaption><strong>Scene 1:</strong> Some notice and pass by; Pip is still left in the drift.</figcaption>
+          </figure>
+
+          <figure>
+            <picture>
+              <source srcset="images/story_03/scene_2_barnaby_stops.jpg" type="image/jpeg">
+              <img src="images/story_03/scene_2_barnaby_stops.png" alt="Barnaby stopping right away to help Pip.">
+            </picture>
+            <figcaption><strong>Scene 2:</strong> Barnaby does not hesitate. He stops and moves toward Pip.</figcaption>
+          </figure>
+
+          <figure>
+            <picture>
+              <source srcset="images/story_03/scene_3_nora_den.jpg" type="image/jpeg">
+              <img src="images/story_03/scene_3_nora_den.png" alt="Cozy den with Nora, Barnaby, and Pip.">
+            </picture>
+            <figcaption><strong>Scene 3:</strong> Nora's den glows with soup, blankets, and safety.</figcaption>
+          </figure>
+        </div>
+      </section>
+
+      <section class="card">
+        <h2>Story Highlight Video</h2>
+        <video controls preload="metadata" poster="images/story_03/cover.jpg">
+          <source src="videos/story_03_highlight.mp4" type="video/mp4">
+          Your browser does not support the video tag.
+        </video>
+      </section>
+    </main>
+
+    <footer>
+      Goodnight blessing: May you have a heart that truly stops for others, and may others stop for you.
+    </footer>
+  </div>
+</body>
+</html>

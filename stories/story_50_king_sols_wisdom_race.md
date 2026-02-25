@@ -8,29 +8,113 @@
 
 ## Opening Wink
 
-Frostpeak had one rule for evenings like this: cocoa first, courage second, and snacks always nearby.
+Every valley needs a wise somebody. In Frostpeak, that somebody wore feathers, sipped peppermint tea, and could settle an argument before your cocoa got cold.
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Judge's Oval for the winter challenge of the day: **pairs skating**.
+The trouble started, as trouble in Frostpeak Valley usually does, with a perfectly beautiful pair of skis.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+They were the Midnight Gliders -- sleek, plum-purple, with silver edges that caught the light like tiny moons. Herschel the Walrus had found them leaning against the back wall of his cocoa shop that morning, with no name tag, no note, and no clue where they came from. He set them beside the counter and figured someone would claim them before lunch.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Someone did. Two someones, actually. At exactly the same moment.
 
-That was when the old story came to mind: **Solomon's Wisdom — 1 Kings 3**.
+"Those are MINE!" cried Piper Paddlefoot, bursting through the door in a spray of snowflakes. Her emperor penguin flippers were already reaching.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+"Excuse me, those are MINE!" announced Finnegan Flipsworth, his rockhopper crest bristling with indignation. He planted both feet on the wooden floor and crossed his flippers like a tiny, feathery bouncer.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+Herschel blinked his enormous walrus eyes. A drip of cocoa slid off his whiskers. "Well," he said slowly, "this is a pickle."
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Wise choices**.
+"It is NOT a pickle," said Piper. "It's simple. I left those skis here last Tuesday after the Moonlight Slalom. I remember because I had hot cocoa with extra marshmallows and I was so full I forgot them."
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"You had hot cocoa with extra marshmallows last WEDNESDAY," Finnegan shot back. "I know because I was here on Tuesday, and I left MY skis right in that exact spot after I crashed into your display of commemorative mugs." He looked at Herschel sheepishly. "Sorry again about the mugs."
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+Herschel sighed. "Those mugs had feelings, Finnegan."
 
-No one promised that part.
+A small crowd had gathered now. Barnaby Beaksworth pressed his beak against the frosty window, a fish cracker dangling from his mouth. Cleo Coldwater perched on a barrel outside, sketching the argument in her little notebook because she said drama made for excellent art. The Powderpuff twins, Teddy and Tilda, had climbed onto each other's shoulders to see over the crowd, wobbling dangerously.
+
+"I rode those skis down Whispering Ridge!" Piper insisted.
+
+"I rode those skis down Crumblehorn Pass!" Finnegan countered.
+
+"You've never even BEEN to Crumblehorn Pass!"
+
+"I have so! I went last month! Ask Barnaby!"
+
+Everyone looked at Barnaby. Barnaby chewed his fish cracker very slowly. "I plead the fifth," he said.
+
+The argument grew louder. Piper stomped. Finnegan hopped -- which, being a rockhopper, he did with alarming bounce. The cocoa shop rattled. Mugs clinked nervously on their shelves. Herschel was just about to blow his famous Walrus Whistle of Order when the door creaked open and a hush fell over the room like fresh snow on a quiet hill.
+
+In walked Willa Wobble.
+
+Now, Willa was the smallest penguin in all of Frostpeak Valley. She was a Little Blue Penguin, which meant she barely came up to Finnegan's shoulder and could fit inside one of Herschel's cocoa mugs if she really scrunched. But Willa had something the others didn't: a patience so deep and steady it could calm a blizzard.
+
+"Good morning," she said pleasantly, unwinding a scarf that was roughly four times her height. "I could hear you two from the skating pond. What's going on?"
+
+Piper and Finnegan both started talking at once. It sounded like a penguin blender.
+
+Willa held up one tiny flipper. They stopped.
+
+"Let me see the skis," she said.
+
+Herschel placed the Midnight Gliders on the counter. Willa examined them carefully. She looked at the edges. She looked at the bindings. She sniffed them once, because Willa believed you could learn a lot from a good sniff.
+
+"Hmm," she said. She looked up at Piper. She looked up at Finnegan. She looked up at everybody, because she had to look up at everybody.
+
+"I have an idea," Willa said. "Since neither of you can prove these skis are yours, and since you both want them equally, the fairest thing to do would be to cut them in half. Piper gets the front halves. Finnegan gets the back halves."
+
+The room gasped. Barnaby dropped his fish cracker. Teddy fell off Tilda's shoulders with a soft POOMF into a snowdrift by the door.
+
+"CUT THEM?" Herschel whispered, clutching his chest.
+
+Finnegan's eyes went wide. He looked at the beautiful plum-purple skis with their silver moonlight edges. He looked at Willa. He looked back at the skis.
+
+"Fine," he said, setting his jaw. "Cut 'em. Half skis are better than no skis."
+
+But Piper -- Piper went pale beneath her feathers. Her flippers trembled. She stepped back from the counter as if the skis might shatter from the very idea.
+
+"No," she said quietly. "No, don't cut them. Please." Her voice wobbled, and not in the fun way. "Give them to Finnegan. Give him both. I'd rather he have them whole than see them ruined."
+
+The cocoa shop went so silent you could hear snowflakes landing on the roof, each one a tiny whispered TICK.
+
+Willa smiled. It was a small smile, but it filled the whole room.
+
+"There's your answer," Willa said softly. "The one who would rather give them up than see them destroyed -- that's the one who truly loves them. Those are Piper's skis."
+
+Finnegan blinked. His crest slowly deflated. He looked at Piper, who was trying very hard not to cry, and then he looked at the skis, and something shifted behind his eyes -- something honest and a little bit embarrassed.
+
+"She's right," he mumbled. He scuffed one foot against the floor. "I... I think mine were actually the RED ones. The ones I left at Bjorn's lodge. I might have gotten mixed up." He glanced at Piper. "Sorry, Pipes."
+
+Piper stared at him. Then she burst out laughing -- the kind of big, relieved, messy laugh that makes everyone else laugh too. She threw a flipper around Finnegan's shoulders. "You absolute goofball," she said.
+
+"In my defense," Finnegan said with dignity, "all skis look the same when you're upside down in a snowbank."
+
+The whole cocoa shop erupted. Barnaby honked with laughter. Cleo was sketching furiously, trying to capture the moment. Herschel poured a fresh round of cocoa for everyone, with double marshmallows, because he said wisdom deserved celebrating. Teddy and Tilda had gotten into a marshmallow fight, which Nora Snowmane gently ended by eating the marshmallows herself.
+
+"How did you know?" Piper asked Willa later, as they sat together on the bench outside the cocoa shop, watching the afternoon light turn the valley amber and rose. "How did you know I was the real owner?"
+
+Willa sipped her cocoa. It left a tiny foam mustache on her beak. "Because the person who really cares about something would rather lose it than see it broken," she said. "Love doesn't grab. Love lets go."
+
+Piper thought about this for a long time. The snow drifted down around them in lazy spirals, each flake catching the fading sunlight like a wink.
+
+"That's really wise, Willa," Piper said.
+
+"That's really wise, Willa," Finnegan agreed, sliding up on his belly from somewhere. He had cocoa on his crest. Nobody asked how.
+
+Willa shrugged her tiny shoulders. "I just pay attention," she said. "You'd be amazed what you notice when you're too small for anyone to notice you."
+
+From across the valley, Captain Prism the narwhal surfaced through a hole in the frozen pond and bellowed, "WISDOM IS THE CROWN JEWEL OF THE FROZEN DEEP! ALSO, HAS ANYONE SEEN MY LUNCH?"
+
+Nobody had.
+
+As the stars came out, one by one, like lanterns being lit by invisible paws, the friends of Frostpeak Valley settled into the warmth of the lodge. Bjorn Bigpaws draped blankets over the smaller creatures. Magnus Meltsworth grumbled that all this fuss over skis was ridiculous, then quietly made sure everyone had a warm spot by the fire. Herschel started a fresh pot of sleepy-time cocoa with cinnamon and a hint of vanilla.
+
+Piper held her Midnight Gliders across her lap and ran a flipper along the smooth, cool surface. They really were beautiful skis. And they felt more precious now -- not because she'd almost lost them, but because she'd been willing to.
+
+"Goodnight, Willa," Piper whispered across the dim room.
+
+"Goodnight, Piper," came a tiny voice from somewhere inside a pile of blankets. "Slide into it tomorrow?"
+
+Piper grinned. "Slide into it."
 
 ---
 
