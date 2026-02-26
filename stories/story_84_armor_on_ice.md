@@ -12,25 +12,81 @@ Tonight's forecast: 30% snowfall, 70% giggles, and a 100% chance somebody forget
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Defense Dome for the winter challenge of the day: **hockey defense drills**.
+**Arma Arctic-Hare** came to **Magnus Meltsworth** with a question, and it was the best kind of question: a real one.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+She was preparing for the Defense Dome ice hockey trials — the annual tryouts for the valley's competitive team — and she was scared. Not of failing the drills, which she'd practiced until she could do them without thinking. Not of the ice or the speed or the physical demands, which she was ready for. She was scared of the voices.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Not real voices. The inner ones. The ones that said *you're not good enough* and *you'll choke at the key moment* and *everyone is watching* and *you don't belong here* in the particular tone that has nothing to do with reality and everything to do with fear.
 
-That was when the old story came to mind: **Armor of God — Ephesians 6**.
+Magnus had been Arma's coach for two winters. He had also, famously, spent a hard season when his own inner voices had gotten very loud — the one documented in Ari Arctic-Fox's lake concerts, which most of the valley knew about because most of the valley had eventually heard the story. He had come through it. He was known for coming through it.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+"The voices aren't going away," he told her, in the direct way he told all things. "They don't. You're going to have them during the tryouts. That's just true."
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"That's not very reassuring," said Arma.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Inner strength**.
+"I'm getting there," said Magnus. "The voices aren't going away. But you can be armored against them. Not by silencing them — by being more prepared than they are."
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+He showed her what he meant.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+---
 
-No one promised that part.
+Over the next two weeks, they worked on what Magnus called the **armor**: not gear, not drills, but habits of mind that held firm when the voices got loud.
+
+Truth first. Every morning, Arma said three things out loud that were true: *I have worked hard. I know these drills. I have earned my place in this tryout.* Not because they made the doubt disappear, but because truth spoken aloud is sturdier than truth only thought.
+
+Steadiness under pressure. They practiced the drills at the Defense Dome under every condition Magnus could create — noise, distraction, deliberately timed bad moments when he would make a loud noise just as she was executing a technique. She learned to keep her form when she was rattled, which is different from never being rattled.
+
+Knowing what she stood for. "Why do you play?" Magnus asked her once, two days before the tryouts.
+
+"Because I love it," said Arma.
+
+"Not to be on the team?"
+
+"That too. But underneath that — I love it. The ice, the movement, the team around me, the way a good play feels when everything connects." She paused. "The voices never talk about that. They talk about failing. They don't mention that I love the thing."
+
+"Remember that," said Magnus. "When they start — remember why you're there."
+
+---
+
+The tryouts at Defense Dome were loud, cold, and highly observed.
+
+Arma's inner voices were present. They were exactly as she'd expected: loud, specific, personal. *Your turn is late. That pass was weak. Everyone saw.*
+
+She heard them. She kept moving.
+
+Truth: I have worked hard. I know these drills.
+
+Steadiness: Keep the form. Don't react to the noise.
+
+Purpose: I love this. I am here because I love this.
+
+The voices were present through the whole tryout. They did not prevent her from doing anything. She was posted to the team that evening.
+
+---
+
+Magnus met her after, with the quiet satisfaction of someone who had known she was ready and was glad to be right.
+
+"The voices?" he said.
+
+"Loud," said Arma. "The whole time."
+
+"But?"
+
+"I was armored," she said. It sounded simple. It had not been simple. But there it was.
+
+Magnus nodded. "Keep the armor on even when it's not tryout season," he said. "The voices don't take breaks."
+
+"Do they get quieter?"
+
+He thought about it honestly. "Some of them. The ones that are just about inexperience go quieter as you get more experience. The ones that are about fear—" he paused "—those stay around. But you get better at being armored."
+
+Arma pulled on her jacket. "Thank you," she said.
+
+"Good season," said Magnus. "You're ready for it."
+
+She was. Inner strength isn't the absence of difficult voices. It's being more prepared than they are.
+
+---
 
 ---
 

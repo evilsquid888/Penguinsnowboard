@@ -12,25 +12,95 @@ Frostpeak had one rule for evenings like this: cocoa first, courage second, and 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Stone Cell Rink for the winter challenge of the day: **stomp-skate rhythm**.
+**Silas Stoat** and **Paula Puffin** were stuck in the equipment holding room for four hours, and they chose to sing.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+The equipment holding room was not a jail, technically — it was the small stone storage room at the back of the main lodge where all confiscated or disputed gear was kept while complaints were resolved. It had a thick door and stone walls and one very small window near the ceiling, and it was exactly as un-fun as that sounds. The door was locked from the outside while the committee investigated.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+The situation was genuinely unfair. Silas and Paula had been running coaching clinics at Stone Cell Rink — the old training rink at the valley's east edge, named for its stone-wall windbreaks — when a competitor filed a formal complaint claiming their clinic was operating without the proper endorsement paperwork. The paperwork existed; it was in Paula's files back at her cottage, not with her. The committee needed three hours minimum to verify.
 
-That was when the old story came to mind: **Paul and Silas in Prison — Acts 16**.
+Silas sat down on a crate of spare bindings.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Paula sat on a different crate.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+They looked at the stone walls.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Joy in hard places**.
+"Well," said Silas.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"Well," said Paula.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"This is inconvenient."
 
-No one promised that part.
+"Extremely," said Paula.
+
+The window was not large enough for either of them to fit through, which Silas checked mostly out of curiosity. The door was solid. The stone walls were cold. There were no clocks.
+
+"I could complain," said Silas.
+
+"You could," said Paula.
+
+"I have things to complain about."
+
+"Valid things," Paula agreed. "This is genuinely unfair."
+
+"Yes."
+
+"And yet."
+
+They looked at the walls some more.
+
+"Do you know any songs?" said Silas.
+
+---
+
+Paula knew many songs. She knew them from her grandmother, from the valley's music tradition, from the long winters she'd spent on expeditions where singing made the time move differently. She had opinions about harmony, strong ones, which she expressed while standing on her equipment crate in the stone room.
+
+Silas could carry a tune adequately. He was not a natural performer. But he had good rhythm from his skating, and rhythm is half of any song, and Paula said *that's actually helpful* when he started keeping time with his flipper on the crate.
+
+They sang for an hour.
+
+Not performance — just the genuine kind, two creatures in a stone room with nothing else to do, discovering what their voices could do together. Paula sang the melody; Silas found a second voice underneath. The stone walls, which had seemed bleak, turned out to be excellent at carrying sound. The echoes made them sound like six creatures instead of two.
+
+After a while there was a knocking on the door.
+
+"Hello?" said a voice from outside. "Is someone in there?"
+
+"Yes," said Paula.
+
+"Are you — all right? You were singing."
+
+"We're fine," said Silas. "Just stuck."
+
+"You sounded — is that two-part harmony?"
+
+"Three parts," said Paula, with professional dignity, "if you count the echo."
+
+A long pause.
+
+"I'll check on the paperwork," said the voice, which belonged to Aldric the committee chair, who had been passing by and had not expected to hear anything cheerful coming from the equipment holding room.
+
+The paperwork cleared in forty minutes. The door opened. Silas and Paula walked out into the cold air of the evening, blinking slightly, unharmed and oddly warm.
+
+"You were *singing*?" said Nora, who had been waiting with appropriate indignation about the whole situation.
+
+"The walls had good acoustics," said Paula.
+
+"You were locked in for four hours under false pretenses and you sang."
+
+"The alternative," said Silas, "was four hours of being miserable, which the walls did not deserve."
+
+Nora looked at them both.
+
+"The paperwork is cleared," she said. "The clinic is fully endorsed. The complaint is dismissed."
+
+"Good," said Paula. "Then we can get back to it tomorrow."
+
+"You're not angry?"
+
+Silas thought about it. "About the situation, yes. About the four hours — they were actually rather nice, in retrospect."
+
+He meant it. Joy is not something the difficult moments can always reach. Sometimes you find it inside the stone walls, singing into excellent acoustics, and it turns out to be a better afternoon than expected.
+
+---
 
 ---
 
