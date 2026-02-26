@@ -12,25 +12,129 @@ Some nights the wind whistles; tonight it hummed like it knew a secret worth sha
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Carnival Ridge for the winter challenge of the day: **festival freestyle**.
+**Nova Narwhal** had been coming to Carnival Ridge since she was a calf, and she had never seen it like this.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+The midwinter storm three weeks ago had been significant — the kind that reshaped terrain, filled gullies, collapsed the old warming hut at the ridge entrance, and rearranged the snowpack in ways that changed everything familiar. The course that had run Carnival Ridge for twelve years was gone. Not damaged — gone. The starting gate had been buried. The three feature jumps had been flattened and drifted over. The lane markers were somewhere under four meters of compacted snow.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+The valley was divided about what to do.
 
-That was when the old story came to mind: **A New Heaven and New Earth — Revelation 21**.
+Half the creatures wanted to excavate — find the old course, restore it as close to the original layout as possible, get back to what they knew.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+The other half thought that was impossible and said so, repeatedly, at the community meetings.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+Nova had attended all three meetings and said almost nothing, which was unusual for her. She was the valley's most experienced carnival course designer — the one who had laid out the original Carnival Ridge circuit twelve years ago — and everyone was waiting for her to weigh in.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Future hope**.
+She was waiting to be ready.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+---
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+**Aurora Frostholm** found her at the ridge on a Tuesday morning, standing at the top of the buried course, looking at the transformed landscape.
 
-No one promised that part.
+Aurora was a long-limbed caribou with pale golden antlers and the specific gift of seeing what things could become. She had been the one to suggest the Valley East Rink when it was just a flat frozen field. She had looked at Rattle Valley before Zeke Finch restored it and said *this could be something*.
+
+She stood beside Nova and looked at the new terrain.
+
+"It's different," said Aurora.
+
+"Everything's changed," said Nova. "The old course is gone."
+
+"What's there instead?"
+
+Nova looked at her. Then she looked at the ridge.
+
+It was — she had to admit — extraordinary. The storm had done something strange and accidental and rather beautiful: filled in the old course and created a completely different topography. The natural fall line had shifted east. There were two new natural half-pipes where none had existed. A section of the upper ridge had been sculpted by the wind into a gentle wave pattern that no course designer would have thought to attempt.
+
+"Something else," said Nova slowly.
+
+"Something new," said Aurora. "Not instead of the old thing. Something new."
+
+Nova was quiet for a long time.
+
+"The community wants the old course back," she said.
+
+"Some of them do," said Aurora. "Some of them are afraid of new things. That's different from actually wanting the specific old thing."
+
+Nova looked at the wave-sculpted upper section. She had designed the original course and it had been good — twelve good winters, countless good runs, and she was proud of it. She was also, looking at what the storm had accidentally created, realizing something that felt strange to admit.
+
+This was better.
+
+---
+
+She brought the valley up to the ridge on Thursday. Not for a decision — for a look. She asked everyone to come with open eyes before they'd already decided what they thought.
+
+They came. They stood at the top of transformed Carnival Ridge and looked at what the storm had made.
+
+Finnegan was the first to say anything, because Finnegan was always the first to say anything.
+
+"*IT'S COMPLETELY DIFFERENT*," he announced, which was true but not particularly helpful.
+
+"It is," said Nova. "Look at the upper section."
+
+"The waves," said Bjorn. He was already moving toward them, the way he moved toward anything interesting — thoughtfully, without hurrying. "That's wind-carved."
+
+"It was flat before," said Nova. "The storm made that."
+
+"It made the half-pipes too," said Willa Wobble, pointing east. "Both of them. Do you see? Natural formations."
+
+Wida Wren, who was small and often near the back of the crowd, made her way forward. She had learned to skate on the old Carnival Ridge course eleven winters ago, when she was still figuring out whether winter sport was for creatures like her. She looked at the new terrain for a long time.
+
+"Is the old course still under there?" she asked.
+
+"Some of it," said Nova. "Not in any way we could use."
+
+"Then this is what we have."
+
+"Yes," said Nova.
+
+Wida looked at the wave section, and then at the new natural half-pipe formation to the east, and then back at Nova.
+
+"It's bigger than the old one," she said.
+
+"Yes."
+
+"More room for more creatures."
+
+Nova hadn't thought of it quite that way. The eastern expansion had opened up space that had previously been tree-lined and narrow. More lanes. More width.
+
+"More room for more creatures," she confirmed.
+
+"Then let's build it," said Wida Wren, who was small and said the decisive thing simply. "Let's build what's here, not what was there."
+
+---
+
+It took four weeks.
+
+Nova designed the new course around the storm's unexpected gifts rather than against them — the wave section as the centerpiece, both natural half-pipes incorporated into the circuit, the wider eastern lane made into a beginner-friendly route running parallel to the main course. Things she'd always wanted to include in the original design but couldn't, because the terrain hadn't supported it. The storm had, accidentally, created the conditions for everything she'd wished the ridge could be.
+
+Aurora Frostholm ran supply logistics and kept everyone's spirits up during the weeks when the work felt endless and the wind was unhelpful. One afternoon, Finnegan dropped a marking pole into a drift and they had to find it, which turned into a twenty-minute operation involving Beryl the narwhal (who was not supposed to be on that part of the ridge, and was also stuck between two survey stakes, and had to be narrated out through a series of very specific directions by Bjorn, who maintained his composure throughout with remarkable dignity). This became the best story of the construction period, retold slightly differently every time.
+
+The opening day was a Saturday in late winter.
+
+Every creature in the valley came, including several who had been loudest about excavating the old course. They stood at the top and looked at what had been built on what the storm had made, and most of them were quiet for a moment in the way that people are quiet when something exceeds their expectations.
+
+Wida Wren skated the beginner-friendly eastern route and immediately went around again.
+
+Bjorn descended the wave section and came to the bottom looking like someone who had just understood something new about snow.
+
+Finnegan attempted the wave section at speed, left the surface briefly at the third wave, landed through what appeared to be luck and was also probably some skill, and shouted "*THAT IS THE BEST THING THAT HAS EVER HAPPENED*" loud enough to echo off the eastern trees.
+
+Nova stood at the bottom and watched the ridge run — new course, new terrain, old valley — and felt something she hadn't expected: gratitude for the storm.
+
+Not for the destruction. For what the destruction had made possible.
+
+"Did you know it would be this?" she asked Aurora.
+
+"No," said Aurora. "I just knew there was something to see."
+
+"Future hope," said Nova. "That's what you were doing when you came to find me."
+
+"I suppose so," said Aurora. "The old course was good. What's here is also good. The valley is large enough to hold what's gone *and* what's new."
+
+The aurora was beginning at the northern edge of the sky — the real one, the shimmering one, the rose and green light that came on good nights and seemed to know when it was needed. It spread over Carnival Ridge and over the valley and over sixty creatures sitting at the bottom of the new course, finishing cocoa and talking about what they'd seen.
+
+A ready heart isn't one that refuses the new thing. It's one that can look at transformed terrain and ask: *what might be built here?*
+
+Future hope isn't the old thing restored. It's the new thing, made with the same love — and better than before.
 
 ---
 
@@ -69,27 +173,27 @@ When life feels slippery, you can always slow down, choose love, and take the ne
 
 ## Image Prompts
 
-**Cover Illustration:**  
-> The New Sky Snow Carnival at Carnival Ridge, featuring Nova Narwhal in a cozy storybook winter scene with glowing lanterns, playful motion, soft snowfall, and warm bedtime color grading.
+**Cover Illustration:**
+> Nova Narwhal and Aurora Frostholm (pale-antlered caribou) standing at the top of Carnival Ridge, looking over storm-transformed terrain with natural wave formations and half-pipes; wonder on their faces, soft aurora beginning at the horizon, cozy storybook style.
 
-**Scene 1 — Winter Challenge Begins:**  
-> Friends preparing for festival freestyle in Frostpeak Valley, colorful boards/skis, scarf flutter, happy crowd, cinematic wide shot.
+**Scene 1 — The Community Gathers:**
+> Valley creatures assembled at the top of transformed Carnival Ridge, looking at storm-sculpted new terrain — wave section, twin half-pipes, wider eastern lanes; divided expressions shifting toward curiosity, wide cinematic shot.
 
-**Scene 2 — The Wobbly Problem:**  
-> Mid-story challenge moment inspired by A New Heaven and New Earth — Revelation 21; characters reacting with humor and teamwork, snow spray and expressive faces, medium shot.
+**Scene 2 — Building the New Course:**
+> Construction period: Nova measuring the wave section, Bjorn and Willa working on the eastern lane, Finnegan dramatically retrieving a lost pole, Beryl the narwhal stuck between survey stakes while Bjorn calmly reads directions; humor and teamwork, medium shot.
 
-**Scene 3 — Cozy Victory Circle:**  
-> Sunset/aurora ending with the group sharing cocoa and laughter, safe and peaceful lodge glow, detailed children's book style.
+**Scene 3 — Opening Day Aurora:**
+> Sixty creatures skating the completed new Carnival Ridge course under rising aurora; Wida Wren on the beginner eastern route, Bjorn carved into the wave section, Finnegan mid-air above wave three; warm lanterns, celebratory energy, detailed children's book style.
 
 ---
 
 ## Video Prompts
 
-**Opening Sequence:**  
-> Establishing aerial of Frostpeak Valley at twilight, then push-in to Carnival Ridge as characters gather for festival freestyle; whimsical orchestral music, cozy cinematic animation.
+**Opening Sequence:**
+> Aerial over storm-transformed Carnival Ridge showing erased old course and new natural terrain; slow push-in as Nova Narwhal stands alone at the top, then Aurora Frostholm appears beside her; quiet, wondering tone before the community gathering begins.
 
-**Challenge + Heart Turn:**  
-> The group faces a playful setback, remembers the lesson from A New Heaven and New Earth — Revelation 21, and shifts from panic to teamwork; include close-ups, snow particles, and gentle humor.
+**Challenge + Heart Turn:**
+> Community meeting tension — half wanting the old course excavated, half saying impossible; Nova and Aurora on the ridge alone; the camera circles the wave section while Nova's face shifts from grief for the lost course to awe at what the storm created; Wida Wren's small decisive voice: "Let's build what's here."
 
 **Triumphant Bedtime Close:**  
 > Golden-blue sunset, completed challenge, cocoa mugs clink, aurora overhead, slow calming camera pullback for bedtime landing.
