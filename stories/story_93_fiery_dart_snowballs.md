@@ -12,25 +12,55 @@ If moonbeams had mittens, this would be the night they came out to clap for the 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Snowball Field for the winter challenge of the day: **dodge camp**.
+**Peter Pika** was having a hard time with the fiery darts.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+Not actual fiery darts — the metaphorical kind. The discouraging thoughts that came in fast and specific, the way snowballs come in from out of nowhere: *you're not improving*, *you'll never be fast enough*, *everyone else is better than you*, *you should just quit*.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+The pikas of Frostpeak Valley were known for being quick, resourceful creatures, and Peter was quick and resourceful in most circumstances. But the fiery darts were fast too, and he'd been getting hit more often than he liked.
 
-That was when the old story came to mind: **1 Peter 5**.
+**Magnus Meltsworth** had dealt with fiery darts. This was known. He'd dealt with them badly (the hard season), and then learned to deal with them better (the lake concerts, the gradual improvement). He was now, in the opinion of most of the valley, very good at being hit by difficult things and staying upright.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Peter went to him.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"Tell me about the snowball field," said Magnus, which was not what Peter expected.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Resilience**.
+He took Peter to the valley's practice snowball field — a training area used for winter agility drills — and showed him what he called the shield technique.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"You can dodge some of them," said Magnus, lobbing a snowball that Peter easily stepped aside from. "Some discouraging thoughts are obviously false. You recognize them fast, you step out of the way, they go past."
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+Another snowball. Slower this time, with more spin.
 
-No one promised that part.
+"Some are more subtle. They've got a grain of truth in them, which makes them harder. You don't dodge those — you deflect. You acknowledge the grain of truth and set down everything else. *I had a bad session today.* True. *I'm permanently bad and should quit.* Not true. Keep the true part, put down the rest."
+
+A third snowball, thrown harder.
+
+"And some you just have to take. They hit you. It hurts. And then you stay standing." Magnus looked at Peter. "This is the main thing. Not never getting hit. Staying standing after."
+
+---
+
+They went through different scenarios: the snowballs that came when you were tired, the ones that arrived right after something went wrong, the particularly nasty ones that arrived when you'd just done something well and should have been feeling good. Magnus named each type and talked through what it felt like and what helped.
+
+"What helps most?" said Peter.
+
+"Other creatures," said Magnus. "When the darts are loudest, you need to be around people. Not to talk about it, necessarily — just to be around them. The darts are louder in isolation."
+
+"I've been training more alone lately," said Peter.
+
+"I know," said Magnus. "That's the darts' favorite technique. They tell you to go be alone, and then they're louder, and then they tell you to go be more alone."
+
+Peter caught a snowball instead of dodging it. It was cold in his paws. He held it for a moment and then set it down.
+
+"The shield thing," he said.
+
+"The shield thing," Magnus agreed. "It doesn't block everything. But it changes how you stand."
+
+They trained at the snowball field for an hour — not to avoid being hit, but to practice the response to being hit. Standing up, deflecting, acknowledging, continuing.
+
+By the end, Peter had been hit many times and had gotten up each time, which was the whole point.
+
+Resilience isn't the absence of hard things. It's the muscle that keeps you standing after them, and the wisdom to be around other people when the darts are flying.
+
+---
 
 ---
 

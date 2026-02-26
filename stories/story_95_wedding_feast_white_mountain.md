@@ -12,25 +12,67 @@ Some nights the wind whistles; tonight it hummed like it knew a secret worth sha
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward White Mountain Hall for the winter challenge of the day: **banquet glide**.
+**Barnaby Beaksworth** had been planning the White Mountain Hall banquet for three weeks, and things were not going according to plan.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+The banquet was the valley's midwinter celebration — a lavish feast at the Hall, the most beautiful venue in Frostpeak, with a long table that could seat sixty and an open invitation to the whole community. Every year the guest list was drawn up, invitations sent, preparations made.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+This year, half the invited guests had sent regrets.
 
-That was when the old story came to mind: **Wedding Banquet — Matthew 22**.
+Not with bad reason — the year had been a busy one and several families had other commitments, and some creatures had travel conflicts, and one notable family had sent a very apologetic note explaining that their sled had broken down. But by three days before the event, Barnaby was looking at a full feast prepared for sixty and a confirmed guest list of thirty.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+**Wendy Weasel** had been helping him organize. She was a small, quick weasel with excellent logistics instincts and the ability to pivot faster than almost anyone in the valley.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"We have sixty places set," said Barnaby. He said it as a fact, not a complaint, because Barnaby did not complain.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Everyone invited**.
+"We have thirty confirmed," said Wendy.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"Yes."
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"And thirty empty seats."
 
-No one promised that part.
+"Yes."
+
+"And soup for sixty."
+
+"And soup for sixty," said Barnaby. "Also the bread. And the roasted vegetables. And the three desserts."
+
+Wendy looked at him. "What do you want to do?"
+
+Barnaby thought for about five seconds, which was longer than he usually needed.
+
+"Fill the seats," he said.
+
+---
+
+They went out with invitations.
+
+Not written invitations — there wasn't time. They went in person, through the valley, and they invited everyone they could find. Creatures who hadn't been included in the original guest list because they were newer to the valley or hadn't been thought of or had been considered perhaps unlikely to come. The Valley East community. Wida Wren, who never expected to be invited to the big events. The young narwhal's family, who had just arrived and didn't yet know many creatures. The Nestling Flock, all seventeen of them. Matty Mink from the checkpoint booth, who almost said no until Wendy said *Barnaby specifically wants you there*.
+
+By the time the Hall opened that evening, fifty-eight seats were filled.
+
+The table was extraordinary. Barnaby's soup was the best version he'd ever made, which happened when he was cooking for creatures he genuinely wanted to feed. The bread was warm. The desserts were distributed generously. The Kingfisher Choir sang, and the Valley East musicians joined them, and the result was considerably better than last year.
+
+Wendy Weasel sat at the far end of the table between Wida Wren and Matty Mink, and at some point she looked down the length of the table at sixty creatures eating together — old residents, new arrivals, the formal guest list and the additions, all of them present and fed and warm — and felt the specific satisfaction of a plan that went wrong in a way that ended up being better.
+
+"Was this the plan?" Matty Mink asked her, somewhere between the soup and the bread.
+
+"The plan was different," said Wendy. "This is better."
+
+"Better how?"
+
+Wendy thought about the empty seats, and the going out, and the filling of them with everyone they could find.
+
+"More real," she said. "The first guest list was the expected people. This is the whole valley."
+
+Matty looked at the table. He looked at Wida beside him, who was laughing at something Pip Starling had said. He looked at Barnaby, moving through the room with quiet joy, making sure every cup was full.
+
+"Someone wanted all of us here," he said.
+
+"Yes," said Wendy. "He always did."
+
+The feast was abundant, and everyone was there, and the warm glow of the Hall lasted until very late. Everyone invited. Everyone fed.
+
+---
 
 ---
 

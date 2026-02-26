@@ -12,25 +12,61 @@ Tonight's forecast: 30% snowfall, 70% giggles, and a 100% chance somebody forget
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Lamp Ridge for the winter challenge of the day: **lantern slalom**.
+The Lamp Ridge Night Slalom was the valley's most dramatic event: ten gates descending the ridge, each marked by a hanging lantern, and a strict rule that each racer must carry their own oil lamp and keep it burning throughout the run. An unlit lamp at any gate meant disqualification. It was beautiful and it required preparation.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+**Ollie Owl** had done it successfully for four consecutive winters.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+He was a small barn owl with enormous eyes well-suited to night skiing and an extremely organized approach to preparation. He filled his lamp before every session. He checked the wick. He kept a spare wick in his jacket pocket. He had, over four winters, never disqualified.
 
-That was when the old story came to mind: **Ten Virgins — Matthew 25**.
+His friend group that year included five other racers who were doing the Night Slalom for the first time. **Willa Wobble** was helping coach the preparation.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Three of the five were extremely ready. Two were not.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+The two who were not ready were not careless creatures — they were just optimistic in the way that first-timers sometimes are. They had their lamps. They planned to fill them before the race. They had not quite gotten around to checking the wicks or acquiring the spare wicks or thinking through what would happen if the wind caught the flame at gate four, which happened to everyone at gate four because of how the ridge funneled the air.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Ready hearts**.
+"Can I borrow some oil if I run low?" one of them, a young fox named Telo, asked Ollie on the day of the race.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+Ollie thought carefully about this.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"No," he said.
 
-No one promised that part.
+Telo looked surprised.
+
+"Not because I don't want to help you," said Ollie. "But because I measured my oil for my lamp. Not yours and mine. I don't have extra. And if I gave you some in the middle of the race, I'd run out before the end."
+
+He paused.
+
+"Fill your lamp now. Check the wick now. Get a spare wick now. There's still an hour."
+
+Telo went to fill his lamp.
+
+---
+
+**Willa** had watched the exchange. When the preparations were done and the six racers were at the starting line, she asked Ollie about it.
+
+"Was that hard?" she said. "Not sharing?"
+
+"Honestly, yes," said Ollie. "I don't like saying no to a friend." He looked at his lamp — full, wick trimmed, burning steadily. "But I couldn't give him what I'd prepared without underpreparing myself. And telling him to go fill his own was more useful than giving him my spare so he didn't have to."
+
+"Ready hearts," said Willa.
+
+"Is that what it's called?"
+
+"The kind of heart that has oil in the lamp," she said. "You can't borrow someone else's ready heart. It doesn't work that way. You have to fill your own."
+
+The Night Slalom began at sundown. Ollie went down clean — lamp burning at every gate, the ridge's wind gusted at gate four and his flame dipped but held, because he'd trimmed the wick correctly and there was enough oil.
+
+Telo went down clean too. He had filled his lamp, checked the wick, gotten a spare. His preparation had been late, but it had been his own, and his flame held.
+
+At the bottom, they collected their lamps and stood in the cold and looked back up at the ten lanterns still hanging on the ridge in the dark, marking where they'd been.
+
+"I should have prepped earlier," said Telo.
+
+"Yes," said Ollie. "But you prepped. That's the part that mattered."
+
+A ready heart isn't one that never needed reminding. It's one that, when reminded, actually goes and fills the lamp.
+
+---
 
 ---
 

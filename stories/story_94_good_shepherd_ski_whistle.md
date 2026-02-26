@@ -12,25 +12,67 @@ Frostpeak had one rule for evenings like this: cocoa first, courage second, and 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Meadow Run for the winter challenge of the day: **shepherd ski calls**.
+**Shira Sheep** had gotten lost on the Meadow Run three times before, and each time **Nora Snowmane** had found her.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+This was not a coincidence.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Nora was the valley's head trail guide — the one who knew every run, every fork, every place where the path felt obvious but wasn't, and every creature who was likely to take the wrong turn. She had a specific whistle: two short, one long, one short, a sequence that carried beautifully across the snowfields and could be heard from half a kilometer in most conditions. Every creature she guided knew her whistle.
 
-That was when the old story came to mind: **The Good Shepherd — John 10**.
+Shira knew Nora's whistle better than anyone, because she had needed it more than most.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+The first time she got lost was in her first winter — she'd taken the east fork of the Meadow Run by mistake, which looked like the main path but wasn't, and she'd been lost for forty minutes in the gathering dark before she heard the whistle: two short, one long, one short.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+The second time was in a white-out, which could happen to anyone. She'd followed the sound of the whistle home through zero visibility.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Being known and guided**.
+The third time — which Shira was embarrassed about — was a clear day. She'd been confident she knew the route, had taken the west variant to try something new, had gotten turned around in the gully section, and had sat in the snow for fifteen minutes feeling foolish before the whistle came.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"You can't hear it if you're too far," said Nora, when she found her. "That's the only rule. Stay in whistle range."
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+"How do I know if I'm in whistle range?"
 
-No one promised that part.
+"You'll hear it," said Nora. "If you're not hearing it, you've gone too far."
+
+---
+
+The fourth time was different.
+
+It was the longest run of the season — the full Meadow circuit, eighteen kilometers, a route Shira had done enough times to feel confident. She was well into the back half when the weather shifted: not a white-out, but a blowing drift that reduced visibility and shifted the snow surface enough to make familiar landmarks look strange.
+
+She stopped. She looked at the terrain.
+
+She listened.
+
+Two short, one long, one short.
+
+Not close — maybe four hundred meters, coming from the northwest. Nora, on the trail somewhere ahead, running the circuit herself, going at her own pace.
+
+Shira adjusted her direction toward the whistle. Nora's circuit intersected the Meadow Run at the far gate. She just needed to follow the sound.
+
+She came out at the far gate where Nora was resting with her thermos.
+
+"I heard your whistle," said Shira.
+
+Nora looked at her. "I wasn't whistling for you," she said. "I was just whistling."
+
+Shira thought about this. "You always whistle on the circuit."
+
+"Yes."
+
+"And I've been listening for it."
+
+"Yes," said Nora again. She handed Shira a cup of tea from the thermos. "That's how it works. You learn the sound. Then when you need it, you can find it."
+
+Shira held the tea and thought about four times: the dark first winter, the white-out, the foolish clear day, and now — not lost at all, just uncertain, using the known sound to navigate.
+
+"What if I'm somewhere the whistle can't reach?" she said.
+
+"Then you hold still and wait," said Nora. "Moving when you can't hear the guide makes the distance worse. Holding still, the guide comes to you."
+
+Shira drank her tea. The snow drifted around them. The whistle sound was in her ear now, internalized — two short, one long, one short. She would recognize it anywhere.
+
+Being known and guided doesn't mean never getting uncertain. It means there's a sound you know, and you've learned to listen for it.
+
+---
 
 ---
 
