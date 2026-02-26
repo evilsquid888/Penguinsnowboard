@@ -12,25 +12,63 @@ Some nights the wind whistles; tonight it hummed like it knew a secret worth sha
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Commentator Booth for the winter challenge of the day: **announcer practice**.
+**Jem Jay** was the valley's new race commentator, and he was learning, the hard way, about the weight of words.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+He had a gift for it — the commentary voice, the quick read, the ability to describe what was happening on the course in real time in a way that made even creatures who could see perfectly well feel like they were seeing it better. He was funny and specific and warm, and the valley had chosen him enthusiastically for the Commentator Booth at the end of last season.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+What he had not fully accounted for was this: the Commentator Booth's microphone broadcast to the whole valley. Every word he said went everywhere.
 
-That was when the old story came to mind: **James 3**.
+This was fine when he was good. He was often very good.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+It was a problem on the Tuesday when he said — without thinking, just filling a pause, just making the commentary lively — that a particular rider's form in the upper gate sequence was "hilariously wrong" and had speculated comically about whether the rider had been "taught by someone who'd never seen a gate before."
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+The rider was Pip Starling.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Kind words**.
+Pip was nineteen. She had been training for two years. Her gate form had, in fact, improved significantly from the previous season, and she had been working on it carefully and consistently. She heard the commentary from the course. She did not laugh. She skied to the finish with her head down and did not speak to anyone for the rest of the event.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+**Willa Wobble** found Jem afterward.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+She did not shout at him. Willa never shouted. She simply explained, clearly and without drama, what Pip had heard and what it had cost her — not just the event, but the confidence she'd been building carefully for months.
 
-No one promised that part.
+"I was trying to be funny," said Jem.
+
+"I know," said Willa. "That's the part to think about."
+
+---
+
+Jem thought about it for a long time.
+
+He thought about the microphone. He thought about how commentary that seemed casual to him was permanent to whoever it was about — it existed in the air and then in memory and you couldn't unsay it once it was out. He thought about a tiny spark hitting a forest of dry pine, which was what James 3 talked about: a small thing that starts big fires.
+
+He went to find Pip.
+
+She was at the rink, practicing alone. She saw him coming and her expression did the complicated thing that expressions do when you're not sure if you're ready to talk to someone yet.
+
+"I said something unkind," Jem said. "Not because I was trying to hurt you. But it did, and I should have been paying more attention."
+
+Pip was quiet.
+
+"Your gate form," he said, "has improved significantly this season. I know because I've been watching the events all year, and the upper sequence improvement is visible on replay. I should have said that instead."
+
+Another quiet.
+
+"You didn't have to come find me," said Pip.
+
+"Yes I did," said Jem. "The microphone goes everywhere. Which means my carelessness went everywhere. The apology should too."
+
+Pip looked at him for a long moment.
+
+"Thank you," she said.
+
+She went back to her practice. Jem walked back to the Commentator Booth.
+
+He taped a note to the microphone: *This goes everywhere. Choose accordingly.*
+
+He looked at it every event after that. It helped. The commentary got better — not less funny, because Jem was genuinely funny and that was part of what made it good. But funnier at the mountain and the conditions and the general chaos of competitive skiing, not at the riders. A small rudder, steered consistently, changes the whole direction of the ship.
+
+Kind words cost nothing. Careless ones cost more than you expect.
+
+---
 
 ---
 

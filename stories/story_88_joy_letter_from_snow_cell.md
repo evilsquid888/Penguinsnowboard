@@ -12,25 +12,70 @@ Tonight's forecast: 30% snowfall, 70% giggles, and a 100% chance somebody forget
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Letter Nook for the winter challenge of the day: **message ski-post**.
+The letter arrived at Letter Nook on a Wednesday, which was when the valley post came, and **Nora Snowmane** almost missed it because it was underneath three equipment catalogs and a newsletter about drainage.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+It was from **Phil Finch**.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Phil Finch had been one of Frostpeak Valley's most cheerful and energetic residents until the previous autumn, when he'd been called away to his family's winter settlement in the far north to help during a difficult period — a health crisis, a family matter, the kind of thing that requires someone to put their life on pause and show up. He'd been gone four months now. Everyone missed him.
 
-That was when the old story came to mind: **Philippians**.
+The letter was on pale blue paper, written in Phil's small, neat hand, and it went on for six pages.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Nora brought it to the Warming Hut that evening and read it aloud.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+---
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Joy despite circumstances**.
+*Dear friends of Frostpeak Valley,*
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+*I am writing from the Letter Nook of the northern settlement, which is smaller than yours and drafty in a way that I have stopped mentioning because nobody else seems to notice it. The past four months have been hard. I will not pretend otherwise.*
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+*And yet.*
 
-No one promised that part.
+*I have found, in the hardest season of my adult life, that I am joyful. Not happy-every-day joyful — there are difficult days. Not pretending-everything-is-fine joyful. But something deeper and more stubborn: a steady glad-to-be-alive quality that the difficult days don't fully reach.*
+
+*I have thought about why this is.*
+
+*I think it is because joy, the real kind, is not a reaction to circumstances. Happiness is a reaction to circumstances — it goes up when things go well and down when things go badly, and that's fine, that's what happiness does. But joy is something you choose to hold. It is the decision that life is fundamentally good even when specific parts of it are hard. It is the recognition that I have things worth having — people worth knowing, work worth doing — and that none of that has changed because things are difficult.*
+
+*Frostpeak Valley is in my thoughts every day. I think about the Warming Hut on cold mornings. I think about the Kingfisher Choir on the lift line. I think about Barnaby's soup. I think about Finnegan, who I am confident is still doing spectacular things and narrowly surviving them. I think about all of you.*
+
+*I am not content to stay here indefinitely. I am content to be here now, while I am needed. That is different.*
+
+*I am learning, this winter, what joy looks like when you have to hold it intentionally. It is more like a practice than a feeling. Every morning I find three things I'm grateful for. Every day I find one thing worth doing well. Every evening I write something down that was good.*
+
+*It does not make the hard things easy. But it holds them differently.*
+
+*I will come back when I can. In the meantime: be well, be kind, and save me a seat at the Warming Hut.*
+
+*With love from the drafty north,*
+*Phil Finch*
+
+---
+
+Nora finished reading. The Warming Hut was quiet.
+
+Barnaby was the one who spoke first. "He's been gone four months," he said, "and he's sending us encouragement."
+
+"Yes," said Nora.
+
+"From a difficult situation."
+
+"A hard family season," said Nora. "His letter."
+
+"He said joy is a practice," said Cleo, who had been writing in her sketchbook. "Not a feeling. A practice."
+
+"That's the part that stays with me," said Willa.
+
+They sat with it for a while — the image of Phil Finch in a drafty Letter Nook, writing six pages of warm and joyful words in the middle of a difficult four months, holding the good things intentionally and sending them north-to-south across the mountain range to land in the valley on a Wednesday.
+
+"I'm going to write back," said Nora.
+
+"We all should," said Barnaby. He was already getting paper.
+
+By the end of the evening, seven creatures had written responses. They went into the outgoing post the next morning: seven envelopes headed north, full of Frostpeak Valley news and warmth and the particular joy of being thought about.
+
+Joy sent out has a way of coming back.
+
+---
 
 ---
 

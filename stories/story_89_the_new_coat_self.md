@@ -12,25 +12,55 @@ If moonbeams had mittens, this would be the night they came out to clap for the 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Costume Cabin for the winter challenge of the day: **costume skiing**.
+**Cole Cat** had a habit of thinking his old self was still the current one, and **Cleo Coldwater** was the one who helped him figure out that it wasn't.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+Cole was a grey-and-white cat who had been at Frostpeak Valley for four winters. In his first two winters, he'd had a reputation for being short-tempered — quick to frustration, quick to blame, the kind of creature who made a bad remark before thinking and then felt bad about it afterward. He'd worked on it. He'd actually genuinely worked on it. By his third winter he was meaningfully better, and his fourth winter was going well.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+The problem was that he still carried the old self around like a coat he'd forgotten to take off. When he made a mistake — which everyone does — he heard the old self's voice saying *see, you haven't changed at all*. When someone teased him lightly about something he'd said two winters ago, he felt it as if it were yesterday.
 
-That was when the old story came to mind: **Colossians 3**.
+He mentioned this to Cleo one afternoon at the Costume Cabin — the small lodge annex where riders stored seasonal gear and the valley kept its collection of competition costumes for the annual Fancy Dress Ski.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Cleo was sorting through costume pieces with great concentration. She held up a magnificent old wolf costume — enormous fluffy grey suit, clearly from many seasons ago.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+"Who does this remind you of?" she said.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Put on kindness daily**.
+"No one currently?" said Cole.
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+"Exactly. Someone wore this. It was their thing. But they outgrew it, or they changed, or they moved on. And the costume stayed here." She put it back. "The costume is not the creature."
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+Cole looked at the rack of old costumes.
 
-No one promised that part.
+"You're saying I'm wearing an old costume," he said.
+
+"I'm saying you *think* you are," said Cleo. "But look at what you actually put on every day." She found a piece of paper in her jacket — a habit of hers, always paper — and started listing. "Last Tuesday: you waited for the whole group to arrive before starting the session. Two weeks ago: you apologized to Bjorn before he had to ask. Last month: you stopped and helped the young narwhal Beryl's nephew figure out his boot binding even though you were in a hurry."
+
+Cole stared at the list.
+
+"I didn't think anyone noticed those," he said.
+
+"I notice everything," said Cleo. "It's my thing." She folded the paper. "Cole. You've been wearing the new coat for two years. The old one's in the costume rack."
+
+---
+
+He thought about this for the next week.
+
+The idea that character was something you chose to put on — something you decided each morning — was both more demanding and more hopeful than he'd expected. More demanding because it meant you had to choose, every day; you couldn't rely on having done it yesterday. More hopeful because it meant yesterday's coat was genuinely gone. You could put on something new.
+
+He started doing it consciously.
+
+Every morning, before the day started, he thought for a moment about what he wanted to put on: patience, kindness, the willingness to wait. Not because he felt these things automatically — sometimes he didn't — but because he chose them. The way you choose a coat off the rack and put it on and go out into the cold.
+
+"You seem different," said Bjorn, after two weeks.
+
+"I'm wearing the new coat," said Cole.
+
+Bjorn looked at him for a moment. "Right," he said, in the tone of someone who didn't quite follow but was willing to believe it was meaningful.
+
+Cleo, skating past, gave Cole a small nod. She had noticed.
+
+The costume rack at Costume Cabin held a lot of old things. None of them had to be worn today. Every morning is a new chance to choose the coat that fits who you actually want to be.
+
+---
 
 ---
 

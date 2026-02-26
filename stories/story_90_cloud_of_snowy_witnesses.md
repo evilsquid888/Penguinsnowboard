@@ -12,25 +12,53 @@ Frostpeak had one rule for evenings like this: cocoa first, courage second, and 
 
 ## The Story
 
-In Frostpeak Valley, the snow glittered like sugar on a birthday cake, and everyone hurried toward Stadium Loop for the winter challenge of the day: **stadium lap**.
+**Hebe Heron** could not see the crowd during the Stadium Loop, but she could hear them.
 
-"Slide into it!" shouted someone from the crowd, and that was all the invitation anybody needed.
+The Stadium Loop was an unusual race: the course wound through a natural stone amphitheater on the valley's east slope, where the stone walls caught sound and amplified it in every direction. When you were running the course, you could hear the crowd constantly but see them only at the start and finish — the middle sections ran through carved passages in the stone where the sound came from everywhere and nowhere at once.
 
-But just as the event began, a surprise problem showed up. A marker flag vanished, a route felt confusing, and Finnegan announced three different plans at once. The valley got noisy in the way only excited animals can—half cheering, half panicking, and fully dramatic.
+Hebe was a tall grey heron with long legs and exceptional cross-country form, and she was running the Stadium Loop in the third most difficult thing she had done in her athletic life. The first was finishing her qualifying season after a bad knee. The second was returning to competition at all. The third was this race, which required things from her she wasn't sure she had.
 
-That was when the old story came to mind: **Hebrews 12**.
+At kilometer four, in the stone passages where the sound carried from every direction, she began to hear individual voices.
 
-Instead of forcing a quick fix, the crew slowed down and chose the heart of the story. They listened. They shared. They told the truth. They helped the smallest riders first. Bjorn steadied the line, Willa checked details, Barnaby passed emergency fish crackers, and Cleo spotted beauty even in the mess.
+Not voices she could see. Just voices — people she'd trained with, creatures from the valley's history of racing that she'd studied, her old coach's specific way of saying *keep the hips forward* when she was flagging. She didn't know if they were real or memory or something the stone walls were doing with sound. She kept moving.
 
-Soon the mood changed. What felt like chaos became teamwork. Skis carved clean arcs, snowboards sprayed sparkling powder, and even the seals kept rhythm with their flippers like tiny Olympic judges.
+**Bjorn Bigpaws** was at kilometer eight — the last visible section before the final stone passage — and he was one of the loudest things Hebe had ever heard.
 
-By sundown, the challenge was solved and everyone learned the same cozy lesson: **Encouragement**.
+"HEBE," Bjorn announced to the entire valley, "YOU TRAINED FOR THIS. YOU HAVE BEEN TRAINING FOR SEVEN MONTHS. YOUR FORM IS EXCELLENT. THE LAST KILOMETER IS STRAIGHT AND YOU ARE VERY GOOD AT STRAIGHT."
 
-Under the aurora, the friends sat in a circle of warm lantern light. Somebody yawned. Somebody else yawned louder. Then they all laughed, tucked scarves around their necks, and promised to keep practicing kindness on and off the slopes.
+Hebe ran past him. She was grinning.
 
-"Tomorrow," said Barnaby, lifting a cocoa mug, "we do it again—only with fewer accidental faceplants."
+At kilometer nine, in the second stone passage, the amplified voices were very loud — the whole crowd, somewhere above and behind, all their voices mixed together and bounced off ancient stone until they arrived from every direction at once, surrounding her.
 
-No one promised that part.
+She did not feel alone.
+
+This was the unexpected part. She had expected the stadium loop to feel lonely — the stone passages isolated you from visual contact with anyone, and she had run the training circuits practicing what to do when it was just her and the course. But in the actual race, with the crowd above and around and the sound amplified and bounced, it felt the opposite of lonely. It felt like running surrounded.
+
+She thought about Bjorn at kilometer eight. She thought about her old coach's voice, which had stayed with her through seven months of training. She thought about every creature she'd run beside, trained with, learned from. They were all there somehow — not in person, but in her form, in her habit, in the muscle memory of seven months.
+
+A cloud of witnesses, she thought. Everyone who had ever run before her, and everyone who was watching now.
+
+She came out of the final passage into the stadium end, where the full crowd was visible at last — two hundred creatures lining the finish corridor, the Kingfisher Choir hitting something triumphant, Finnegan somewhere near the front making a spectacular amount of noise.
+
+She ran the last hundred meters with her whole heart.
+
+She crossed the finish line and stopped and stood and let the noise come over her. Bjorn arrived with a blanket. Barnaby arrived with soup. The crowd arrived with itself, warm and present and loud.
+
+"The stone passages," she said to Bjorn, when she'd caught her breath.
+
+"What about them?"
+
+"You can hear the crowd everywhere. The whole time. Even when you can't see anyone."
+
+"Good acoustics," said Bjorn.
+
+"It felt like—" she tried to find the right word "—like running surrounded. Like everyone who ever cheered for anyone was cheering for me."
+
+Bjorn thought about this. "Maybe they were," he said.
+
+Encouragement that has been given before doesn't disappear. It echoes. You can hear it when the walls are right.
+
+---
 
 ---
 
